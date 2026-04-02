@@ -1,0 +1,28 @@
+name: Update Daily Scripts
+on:
+  schedule:
+    - cron: '0 10 * * *'  # Runs every day at 10:00 AM UTC
+  workflow_dispatch:      # Lets you run it manually
+
+jobs:
+  build:
+    runs-on: ubuntu-latest
+    steps:
+      - uses: actions/checkout@v3
+      - name: Set up Python
+        uses: actions/setup-python@v4
+        with:
+          python-version: '3.9'
+      - name: Install dependencies
+        run: pip install -r requirements.txt
+      - name: Run script
+        env:
+          NEWS_API_KEY: ${{ secrets.NEWS_API_KEY }}
+        run: python agent.py
+      - name: Commit result
+        run: |
+          git config --global user.name 'GitHub Action'
+          git config --global user.email 'action@github.com'
+          git add shorts_scripts.md
+          git commit -m "New scripts for today" || exit 0
+          git push
