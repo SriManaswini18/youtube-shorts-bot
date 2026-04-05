@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Oil prices surge while Asian share prices rise moderately - AP News
-**Hook:** Did you hear about this? Oil prices surge while Asian share prices rise mod...
-**Body:** Oil prices are surging on worries of a prolonged Iran war while most Asian financial markets are rising moderately during cautious trading. Benchmark U.S. crude rose 11.4% to $111.54 a barrel. The price of Brent crude, the international standard, jumped 7.8% …
+### Short 1: Two U.S. warplanes shot down, search ongoing in Iran for 1 missing crew member - The Washington Post
+**Hook:** Did you hear about this? Two U.S. warplanes shot down, search ongoing in Ir...
+**Body:** An F-15 fighter jet and an A-10 attack plane were lost to hostile fire. Two search-and-rescue helicopters also were hit, injuring the crews, before safely returning to their base, officials said.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Myanmar’s coup leader elected president by pro-military parliament - Al Jazeera
-**Hook:** Did you hear about this? Myanmar’s coup leader elected president by pro-mil...
-**Body:** Min Aung Hlaing wins 429 out of the 584 votes cast by MPs to become the ⁠country’s president.
+### Short 2: UConn coach Geno Auriemma has heated exchange with Dawn Staley before walking off court - CT Insider
+**Hook:** Did you hear about this? UConn coach Geno Auriemma has heated exchange with...
+**Body:** When ESPN sideline reporter Holly Rowe asked about Sarah Strong's ripped jersey, UConn coach Geno Auriemma did not hold back his emotions.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: US employment growth likely rebounded in March, war casting shadow over labor market - Yahoo Finance
-**Hook:** Did you hear about this? US employment growth likely rebounded in March, wa...
-**Body:** By Lucia Mutikani WASHINGTON, April 3 (Reuters) - U.S. job growth likely rebounded in March as a strike by healthcare workers ended and temperatures warmed...
+### Short 3: Judge rejects Department of Justice bid to reinstate Powell subpoenas - Axios
+**Hook:** Did you hear about this? Judge rejects Department of Justice bid to reinsta...
+**Body:** The government can appeal the decision, prolonging a standoff that could delay the confirmation of the Fed chair nominee.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
