@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Two U.S. warplanes shot down, search ongoing in Iran for 1 missing crew member - The Washington Post
-**Hook:** Did you hear about this? Two U.S. warplanes shot down, search ongoing in Ir...
-**Body:** An F-15 fighter jet and an A-10 attack plane were lost to hostile fire. Two search-and-rescue helicopters also were hit, injuring the crews, before safely returning to their base, officials said.
+### Short 1: We may have even less control over how long we live than previously thought - The Washington Post
+**Hook:** Did you hear about this? We may have even less control over how long we liv...
+**Body:** A study resets the longevity discussion, after previous research focused on those born between 1870 and 1900, and shows genetics and environment play roughly equal roles.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: UConn coach Geno Auriemma has heated exchange with Dawn Staley before walking off court - CT Insider
-**Hook:** Did you hear about this? UConn coach Geno Auriemma has heated exchange with...
-**Body:** When ESPN sideline reporter Holly Rowe asked about Sarah Strong's ripped jersey, UConn coach Geno Auriemma did not hold back his emotions.
+### Short 2: Live updates: Iran war news; US forces rescue missing F-15 crew member, Trump says - CNN
+**Hook:** Did you hear about this? Live updates: Iran war news; US forces rescue miss...
+**Body:** The service member “sustained injuries, but he will be just fine,” says Trump, adding that the rescue operation involved “dozens of aircraft.” Follow for live updates.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Judge rejects Department of Justice bid to reinstate Powell subpoenas - Axios
-**Hook:** Did you hear about this? Judge rejects Department of Justice bid to reinsta...
-**Body:** The government can appeal the decision, prolonging a standoff that could delay the confirmation of the Fed chair nominee.
+### Short 3: Zendaya Good Genes or Good Docs?! - TMZ
+**Hook:** Did you hear about this? Zendaya Good Genes or Good Docs?! - TMZ...
+**Body:** None
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
