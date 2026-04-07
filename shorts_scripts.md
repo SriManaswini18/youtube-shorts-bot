@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: We may have even less control over how long we live than previously thought - The Washington Post
-**Hook:** Did you hear about this? We may have even less control over how long we liv...
-**Body:** A study resets the longevity discussion, after previous research focused on those born between 1870 and 1900, and shows genetics and environment play roughly equal roles.
+### Short 1: South Korea says 'credible intelligence' indicates North Korean leader's daughter is successor - yahoo.com
+**Hook:** Did you hear about this? South Korea says 'credible intelligence' indicates...
+**Body:** By Kyu-seok Shim SEOUL, April 6 (Reuters) - South Korea's spy agency now believes North Korean leader Kim Jong Un's teenage daughter has been positioned as...
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Live updates: Iran war news; US forces rescue missing F-15 crew member, Trump says - CNN
-**Hook:** Did you hear about this? Live updates: Iran war news; US forces rescue miss...
-**Body:** The service member “sustained injuries, but he will be just fine,” says Trump, adding that the rescue operation involved “dozens of aircraft.” Follow for live updates.
+### Short 2: English referee Michael Oliver appointed to Real Madrid vs Bayern Munich — Here’s what the stats say - Bavarian Football Works
+**Hook:** Did you hear about this? English referee Michael Oliver appointed to Real M...
+**Body:** FC Bayern will have to deal with a referee they are familiar with
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Zendaya Good Genes or Good Docs?! - TMZ
-**Hook:** Did you hear about this? Zendaya Good Genes or Good Docs?! - TMZ...
-**Body:** None
+### Short 3: Gold Falls as Trump Threatens Escalation of US Attacks on Iran - Bloomberg.com
+**Hook:** Did you hear about this? Gold Falls as Trump Threatens Escalation of US Att...
+**Body:** Gold clawed back some losses after a report about a diplomatic push for a ceasefire to the war in Iran, even as President Donald Trump ramped up his threats of escalation to the conflict that’s roiled global markets.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
