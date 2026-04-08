@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: South Korea says 'credible intelligence' indicates North Korean leader's daughter is successor - yahoo.com
-**Hook:** Did you hear about this? South Korea says 'credible intelligence' indicates...
-**Body:** By Kyu-seok Shim SEOUL, April 6 (Reuters) - South Korea's spy agency now believes North Korean leader Kim Jong Un's teenage daughter has been positioned as...
+### Short 1: Former Australian soldier charged with committing 5 war crime murders in Afghanistan - AP News
+**Hook:** Did you hear about this? Former Australian soldier charged with committing ...
+**Body:** Australia’s most decorated living veteran Ben Roberts-Smith faces war crime charges on allegations that he killed five unarmed Afghans while serving in Afghanistan from 2009 and 2012. Police have not confirmed the name of the 47-year-old former soldier who wa…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: English referee Michael Oliver appointed to Real Madrid vs Bayern Munich — Here’s what the stats say - Bavarian Football Works
-**Hook:** Did you hear about this? English referee Michael Oliver appointed to Real M...
-**Body:** FC Bayern will have to deal with a referee they are familiar with
+### Short 2: Apple’s 2026 Shake-Up: iPhone 18 Pro Leaks While iPhone Fold Steals The Show - Forbes
+**Hook:** Did you hear about this? Apple’s 2026 Shake-Up: iPhone 18 Pro Leaks While i...
+**Body:** Which iPhone flagship should you be waiting for? This September’s launches will be unlike any previous year.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Gold Falls as Trump Threatens Escalation of US Attacks on Iran - Bloomberg.com
-**Hook:** Did you hear about this? Gold Falls as Trump Threatens Escalation of US Att...
-**Body:** Gold clawed back some losses after a report about a diplomatic push for a ceasefire to the war in Iran, even as President Donald Trump ramped up his threats of escalation to the conflict that’s roiled global markets.
+### Short 3: Trump's tipping point: Destroy Iran's infrastructure or give talks a chance - Axios
+**Hook:** Did you hear about this? Trump's tipping point: Destroy Iran's infrastructu...
+**Body:** "The president is the most bloodthirsty, like a mad dog,"  a U.S. official said.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
