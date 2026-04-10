@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Houston Rockets vs. Phoenix Suns Live Score and Stats - April 7, 2026 Gametracker - CBS Sports
-**Hook:** Did you hear about this? Houston Rockets vs. Phoenix Suns Live Score and St...
-**Body:** Get real-time NBA Basketball coverage and scores as Houston Rockets takes on Phoenix Suns. We bring you the latest game previews, live stats, expert picks and recaps on CBSSports.com
+### Short 1: Britain to call for toll-free Strait of Hormuz, says Lebanon must be part of Iran ceasefire - CNBC
+**Hook:** Did you hear about this? Britain to call for toll-free Strait of Hormuz, sa...
+**Body:** In an annual foreign policy speech, Cooper is expected to say that shipping must be toll-free through the strategically vital Strait of Hormuz.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Live Updates: U.S., Iran reach 2-week ceasefire ahead of Trump's deadline - CBS News
-**Hook:** Did you hear about this? Live Updates: U.S., Iran reach 2-week ceasefire ah...
-**Body:** President Trump announced that the U.S. and Iran had agreed to a two-week ceasefire that was contingent on the reopening of the Strait of Hormuz.
+### Short 2: President Trump’s ceasefire with Iran draws praise from world leaders - Fox News
+**Hook:** Did you hear about this? President Trump’s ceasefire with Iran draws praise...
+**Body:** World leaders from Israel, Germany and the U.K. are praising President Donald Trump’s ceasefire with Iran. Trump says the U.S. "will be helping with the traffic buildup in the Strait of Hormuz."
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Dow futures jump over 1,000 points, oil tumbles after Trump suspends Iran attacks for two weeks: Live updates - CNBC
-**Hook:** Did you hear about this? Dow futures jump over 1,000 points, oil tumbles af...
-**Body:** Trump noted that the "double sided" ceasefire was contingent on Iran agreeing to an opening of the Strait of Hormuz.
+### Short 3: US Futures Waver as Iran Says Ceasefire Violated: Markets Wrap - Bloomberg.com
+**Hook:** Did you hear about this? US Futures Waver as Iran Says Ceasefire Violated: ...
+**Body:** Stocks declined and oil rose as optimism over the US-Iran ceasefire faded after Tehran said several terms of the agreement had been breached, highlighting lingering uncertainty in markets.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
