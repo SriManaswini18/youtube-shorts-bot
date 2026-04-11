@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Britain to call for toll-free Strait of Hormuz, says Lebanon must be part of Iran ceasefire - CNBC
-**Hook:** Did you hear about this? Britain to call for toll-free Strait of Hormuz, sa...
-**Body:** In an annual foreign policy speech, Cooper is expected to say that shipping must be toll-free through the strategically vital Strait of Hormuz.
+### Short 1: Flashes on the Dark Side of the Moon: A New Fishing Net for Interstellar Objects - Avi Loeb – Medium
+**Hook:** Did you hear about this? Flashes on the Dark Side of the Moon: A New Fishin...
+**Body:** During one of the dozen television interviews on Artemis II that I had in recent days (as summarized here, here, here and here), I made the…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: President Trump’s ceasefire with Iran draws praise from world leaders - Fox News
-**Hook:** Did you hear about this? President Trump’s ceasefire with Iran draws praise...
-**Body:** World leaders from Israel, Germany and the U.K. are praising President Donald Trump’s ceasefire with Iran. Trump says the U.S. "will be helping with the traffic buildup in the Strait of Hormuz."
+### Short 2: These Republican-on-Republican disputes are keeping Congress frozen - Politico
+**Hook:** Did you hear about this? These Republican-on-Republican disputes are keepin...
+**Body:** Donald Trump could intervene to settle many of these clashes, but he has mostly kept his distance.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: US Futures Waver as Iran Says Ceasefire Violated: Markets Wrap - Bloomberg.com
-**Hook:** Did you hear about this? US Futures Waver as Iran Says Ceasefire Violated: ...
-**Body:** Stocks declined and oil rose as optimism over the US-Iran ceasefire faded after Tehran said several terms of the agreement had been breached, highlighting lingering uncertainty in markets.
+### Short 3: US Postal Service to suspend employer pay to workers’ pensions, citing cash crunch - NewsNation
+**Hook:** Did you hear about this? US Postal Service to suspend employer pay to worke...
+**Body:** Despite the suspension of employer contributions, current and future retirees will not be immediately impacted.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
