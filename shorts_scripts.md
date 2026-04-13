@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Marriage status has surprising link to cancer risk, study suggests: 'Clear signal' - AOL.com
-**Hook:** Did you hear about this? Marriage status has surprising link to cancer risk...
-**Body:** Never-married adults are significantly more likely to develop cancer, according to a University of Miami study of over 4 million people in 12 states.
+### Short 1: China says it will resume some ties with Taiwan after visit by opposition leader - AP News
+**Hook:** Did you hear about this? China says it will resume some ties with Taiwan af...
+**Body:** None
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Splashdown! Artemis 2 astronauts return to Earth after historic NASA mission to the moon - Space
-**Hook:** Did you hear about this? Splashdown! Artemis 2 astronauts return to Earth a...
-**Body:** Artemis 2 etched its name in the record books and kept NASA on track for even bigger things to come.
+### Short 2: A love story at sea ends in silence: Inside the life and disappearance of Lynette Hooker - CNN
+**Hook:** Did you hear about this? A love story at sea ends in silence: Inside the li...
+**Body:** Lynette Hooker, a mother and avid sailor, vanished at sea in the Bahamas a week ago. Her husband, Brian Hooker, is in custody as investigators work to determine what happened. As the search continues, family members are questioning the circumstances surroundi…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Sam Altman Confirms Molotov Cocktail Incident and Responds to “Incendiary” New Yorker Investigation - The Hollywood Reporter
-**Hook:** Did you hear about this? Sam Altman Confirms Molotov Cocktail Incident and ...
-**Body:** The OpenAI CEO covers a lot of ground in the personal blog post, shared Friday afternoon, by opening up on Ronan Farrow and Andrew Marantz’s investigation and reliving his past mistakes.
+### Short 3: Justin Bieber Undies On Stage -- Good Genes or Good Docs?! - TMZ
+**Hook:** Did you hear about this? Justin Bieber Undies On Stage -- Good Genes or Goo...
+**Body:** Justin Bieber's looks over the years are UN-BELIEBER-BLE!
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
