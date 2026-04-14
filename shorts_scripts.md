@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: China says it will resume some ties with Taiwan after visit by opposition leader - AP News
-**Hook:** Did you hear about this? China says it will resume some ties with Taiwan af...
-**Body:** None
+### Short 1: UK Won’t Take Part in Trump’s Planned Blockade of Hormuz Strait - Bloomberg.com
+**Hook:** Did you hear about this? UK Won’t Take Part in Trump’s Planned Blockade of ...
+**Body:** The UK will not take part in the proposed US blockade of the Strait of Hormuz, setting up yet another point of contention between President Donald Trump and Prime Minister Keir Starmer over the conflict in Iran.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: A love story at sea ends in silence: Inside the life and disappearance of Lynette Hooker - CNN
-**Hook:** Did you hear about this? A love story at sea ends in silence: Inside the li...
-**Body:** Lynette Hooker, a mother and avid sailor, vanished at sea in the Bahamas a week ago. Her husband, Brian Hooker, is in custody as investigators work to determine what happened. As the search continues, family members are questioning the circumstances surroundi…
+### Short 2: "The door is not closed": Mediators rush to revive U.S.-Iran talks - Axios
+**Hook:** Did you hear about this? "The door is not closed": Mediators rush to revive...
+**Body:** "Both sides are bargaining. It's a bazaar."
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Justin Bieber Undies On Stage -- Good Genes or Good Docs?! - TMZ
-**Hook:** Did you hear about this? Justin Bieber Undies On Stage -- Good Genes or Goo...
-**Body:** Justin Bieber's looks over the years are UN-BELIEBER-BLE!
+### Short 3: How a $75 billion windfall from Congress has insulated ICE - NPR
+**Hook:** Did you hear about this? How a $75 billion windfall from Congress has insul...
+**Body:** Last year, Congress approved $75 billion for immigration enforcement. That money has allowed ICE to operate nearly unfettered during a record-long shutdown of the Department of Homeland Security.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
