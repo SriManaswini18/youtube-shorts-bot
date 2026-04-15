@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: UK Won’t Take Part in Trump’s Planned Blockade of Hormuz Strait - Bloomberg.com
-**Hook:** Did you hear about this? UK Won’t Take Part in Trump’s Planned Blockade of ...
-**Body:** The UK will not take part in the proposed US blockade of the Strait of Hormuz, setting up yet another point of contention between President Donald Trump and Prime Minister Keir Starmer over the conflict in Iran.
+### Short 1: Hezbollah official says the group won't abide by any agreements from Lebanon-Israel talks in the US - AP News
+**Hook:** Did you hear about this? Hezbollah official says the group won't abide by a...
+**Body:** A senior Hezbollah official says the Lebanese militant group will not abide by any agreements made in upcoming direct talks between Israel and Lebanon in the United States. The talks, which are to start on Tuesday, will be the first in decades. Hezbollah oppo…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: "The door is not closed": Mediators rush to revive U.S.-Iran talks - Axios
-**Hook:** Did you hear about this? "The door is not closed": Mediators rush to revive...
-**Body:** "Both sides are bargaining. It's a bazaar."
+### Short 2: 'RHOA's Drew Sidora's Monthly Income Revealed in Divorce Battle - TMZ
+**Hook:** Did you hear about this? 'RHOA's Drew Sidora's Monthly Income Revealed in D...
+**Body:** "The Real Housewives of Atlanta" star Drew Sidora's 5-figure monthly income was exposed as part of her ugly divorce battle ... this, according to docs from her messy divorce.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: How a $75 billion windfall from Congress has insulated ICE - NPR
-**Hook:** Did you hear about this? How a $75 billion windfall from Congress has insul...
-**Body:** Last year, Congress approved $75 billion for immigration enforcement. That money has allowed ICE to operate nearly unfettered during a record-long shutdown of the Department of Homeland Security.
+### Short 3: U.K. inquiry lays bare 'catastrophic' missed chances before stabbings at dance class - NPR
+**Hook:** Did you hear about this? U.K. inquiry lays bare 'catastrophic' missed chanc...
+**Body:** An inquiry found that a mass killing by a British teenager in 2024 at a Taylor Swift-themed dance class could have been prevented if his parents and state agencies had acted on his violence fixation.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
