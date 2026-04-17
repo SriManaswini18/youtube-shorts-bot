@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: West Coast SpaceX Falcon 9 mission launches 25 Starlink satellites - Spaceflight Now
-**Hook:** Did you hear about this? West Coast SpaceX Falcon 9 mission launches 25 Sta...
-**Body:** None
+### Short 1: Live updates: Push for US-Iran talks gains momentum as White House expresses optimism for deal - CNN
+**Hook:** Did you hear about this? Live updates: Push for US-Iran talks gains momentu...
+**Body:** The Trump administration feels “good about prospects of a deal” with Iran, the White House said, noting that a potential second round of talks would likely be held in Pakistan. Follow along for live updates.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Live Updates: U.S. says blockade of Iranian ports "fully implemented" as Trump weighs more talks with Iran - CBS News
-**Hook:** Did you hear about this? Live Updates: U.S. says blockade of Iranian ports ...
-**Body:** CENTCOM commander Adm. Brad Cooper says a blockade of Iranian ports "has been fully implemented," as the U.S.-Iran impasse over control of the Strait of Hormuz continues amid a delicate ceasefire.
+### Short 2: Trump administration set to launch tariff refund portal. Here's what to know. - CBS News
+**Hook:** Did you hear about this? Trump administration set to launch tariff refund p...
+**Body:** A federal agency will open a portal on April 20 that lets businesses apply for a refund for Trump tariffs struck down by the Supreme Court.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Iran war: US will make Iran 'thrive' if it ditches nukes - DW.com
-**Hook:** Did you hear about this? Iran war: US will make Iran 'thrive' if it ditches...
-**Body:** US President Donald Trump wants a "grand bargain" with Tehran, where the US can make Iran "thrive and prosper," according to Vice President JD Vance. DW has more.
+### Short 3: 3 things to know about naval blockades as U.S. begins patrols in the Strait of Hormuz - NPR
+**Hook:** Did you hear about this? 3 things to know about naval blockades as U.S. beg...
+**Body:** The White House says it wants to choke off Iran's oil export revenue. But experts say that blockades are often unpredictable and difficult to enforce.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
