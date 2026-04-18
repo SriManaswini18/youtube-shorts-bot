@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Live updates: Push for US-Iran talks gains momentum as White House expresses optimism for deal - CNN
-**Hook:** Did you hear about this? Live updates: Push for US-Iran talks gains momentu...
-**Body:** The Trump administration feels “good about prospects of a deal” with Iran, the White House said, noting that a potential second round of talks would likely be held in Pakistan. Follow along for live updates.
+### Short 1: Netflix shares fall 10% on Q2 guidance miss; co-founder Hastings to exit - Investing.com
+**Hook:** Did you hear about this? Netflix shares fall 10% on Q2 guidance miss; co-fo...
+**Body:** Netflix shares fall 10% on Q2 guidance miss; co-founder Hastings to exit
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Trump administration set to launch tariff refund portal. Here's what to know. - CBS News
-**Hook:** Did you hear about this? Trump administration set to launch tariff refund p...
-**Body:** A federal agency will open a portal on April 20 that lets businesses apply for a refund for Trump tariffs struck down by the Supreme Court.
+### Short 2: NHL Stanley Cup Playoffs Bracket 2026 Dates, Matchups, Game Times and TV Schedule Info - Bleacher Report
+**Hook:** Did you hear about this? NHL Stanley Cup Playoffs Bracket 2026 Dates, Match...
+**Body:** All 16 Stanley Cup playoff teams were confirmed entering the NHL regular season's final day, but there was still the matter of figuring out the Pacific Division's second and third seeds as well as the Western Conference's second wild card.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: 3 things to know about naval blockades as U.S. begins patrols in the Strait of Hormuz - NPR
-**Hook:** Did you hear about this? 3 things to know about naval blockades as U.S. beg...
-**Body:** The White House says it wants to choke off Iran's oil export revenue. But experts say that blockades are often unpredictable and difficult to enforce.
+### Short 3: ICE acting director Todd Lyons will resign at end of May, DHS says - NPR
+**Hook:** Did you hear about this? ICE acting director Todd Lyons will resign at end ...
+**Body:** U.S. Immigration and Customs Enforcement acting director Todd Lyons, a key executor of President Donald Trump's mass deportations agenda, will resign at the end of May, federal officials announced.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
