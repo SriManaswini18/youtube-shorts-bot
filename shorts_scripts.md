@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Iran War Live Updates: Uncertainty Hangs Over U.S.-Iran Talks in Wake of Ship Seizure - WSJ
-**Hook:** Did you hear about this? Iran War Live Updates: Uncertainty Hangs Over U.S....
-**Body:** U.S. negotiators are set to head to Pakistan but Iran's state media said officials may skip the discussions.
+### Short 1: Police Seek Arrest of BTS Agency Hybe’s Billionaire Founder Bang - Bloomberg.com
+**Hook:** Did you hear about this? Police Seek Arrest of BTS Agency Hybe’s Billionair...
+**Body:** Police are seeking a warrant for the arrest of BTS-agency Hybe Co. founder Bang Si-hyuk following a probe into allegations the billionaire misled investors ahead of the K-Pop powerhouse’s 2020 initial public offering.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: The pope's English fuels a Trump feud - Axios
-**Hook:** Did you hear about this? The pope's English fuels a Trump feud - Axios...
-**Body:** No translation, no buffer: A pope Americans hear directly.
+### Short 2: Oil falls on expectations US-Iran talks likely to proceed, opening supply By Reuters - Investing.com
+**Hook:** Did you hear about this? Oil falls on expectations US-Iran talks likely to ...
+**Body:** Oil falls on expectations US-Iran talks likely to proceed, opening supply
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Republicans stare down a growing, neverending FISA crisis - Politico
-**Hook:** Did you hear about this? Republicans stare down a growing, neverending FISA...
-**Body:** Continued disagreements over the extension of a key government spy authority are threatening other facets of the GOP agenda.
+### Short 3: Gunman shoots several tourists at historic pyramids in Mexico - NPR
+**Hook:** Did you hear about this? Gunman shoots several tourists at historic pyramid...
+**Body:** A man standing atop one of the historic Teotihuacan pyramids opened fire on tourists Monday, killing one Canadian and leaving at least 13 people, authorities said.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
