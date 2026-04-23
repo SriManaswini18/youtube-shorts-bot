@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Police Seek Arrest of BTS Agency Hybe’s Billionaire Founder Bang - Bloomberg.com
-**Hook:** Did you hear about this? Police Seek Arrest of BTS Agency Hybe’s Billionair...
-**Body:** Police are seeking a warrant for the arrest of BTS-agency Hybe Co. founder Bang Si-hyuk following a probe into allegations the billionaire misled investors ahead of the K-Pop powerhouse’s 2020 initial public offering.
+### Short 1: Trump extends Iran ceasefire, citing "fractured" Iranian government - Axios
+**Hook:** Did you hear about this? Trump extends Iran ceasefire, citing "fractured" I...
+**Body:** The ceasefire will last "until such time as their proposal is submitted," Trump said.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Oil falls on expectations US-Iran talks likely to proceed, opening supply By Reuters - Investing.com
-**Hook:** Did you hear about this? Oil falls on expectations US-Iran talks likely to ...
-**Body:** Oil falls on expectations US-Iran talks likely to proceed, opening supply
+### Short 2: SpaceX nears deal with Cursor - Axios
+**Hook:** Did you hear about this? SpaceX nears deal with Cursor - Axios...
+**Body:** The deal underscores Elon Musk's push to make SpaceX into an AI powerhouse ahead of its potential IPO.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Gunman shoots several tourists at historic pyramids in Mexico - NPR
-**Hook:** Did you hear about this? Gunman shoots several tourists at historic pyramid...
-**Body:** A man standing atop one of the historic Teotihuacan pyramids opened fire on tourists Monday, killing one Canadian and leaving at least 13 people, authorities said.
+### Short 3: ‘The GOP should’ve done more’: Virginia Republicans point fingers after gerrymandering loss - Politico
+**Hook:** Did you hear about this? ‘The GOP should’ve done more’: Virginia Republican...
+**Body:** They are frustrated the party didn’t spend extensively and are putting pressure on Florida to give them back an edge.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
