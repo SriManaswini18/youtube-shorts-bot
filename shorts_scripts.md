@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Who is John Phelan the US Navy Secretary fired by Pete Hegseth? - Al Jazeera
-**Hook:** Did you hear about this? Who is John Phelan the US Navy Secretary fired by ...
-**Body:** Phelan’s firing reveals turbulence in US military leadership amid the ongoing US-Israeli war with Iran.
+### Short 1: Mike Vrabel’s Hubris Made Him the Main Character of the NFL Draft - The Ringer
+**Hook:** Did you hear about this? Mike Vrabel’s Hubris Made Him the Main Character o...
+**Body:** The first round of the 2026 draft lacked juice. Enter the Patriots coach, NFL reporter Dianna Russini, and the sex scandal that won’t go away.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: 'Superman' Production Upsets Atlanta Prisoners Over Alleged Security Restrictions - TMZ
-**Hook:** Did you hear about this? 'Superman' Production Upsets Atlanta Prisoners Ove...
-**Body:** Superman fans are super stoked the sequel to James Gunn's DC blockbuster has started production in Georgia ... but there's a group of people who ain't so happy ... local prisoners.
+### Short 2: Steelers thought they were getting Makai Lemon, didn’t realize Eagles had cut the line - NBC Sports
+**Hook:** Did you hear about this? Steelers thought they were getting Makai Lemon, di...
+**Body:** As the Steelers moved quickly with the truncated window to make their first pick in the 2026 draft, they didn't know the guy they wanted was already gone.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: How TikTok is driving American expats to Southeast Asia - NPR
-**Hook:** Did you hear about this? How TikTok is driving American expats to Southeast...
-**Body:** Americans who moved to Vietnam and Thailand say their lives are now lower-stress and lower-cost. But glamorous videos on TikTok don't tell the whole story.
+### Short 3: China’s DeepSeek Launches Long-Awaited AI Model - WSJ
+**Hook:** Did you hear about this? China’s DeepSeek Launches Long-Awaited AI Model - ...
+**Body:** Company’s V4 model also marks a milestone for Chinese chips
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
