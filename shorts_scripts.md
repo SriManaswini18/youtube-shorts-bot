@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Mike Vrabel’s Hubris Made Him the Main Character of the NFL Draft - The Ringer
-**Hook:** Did you hear about this? Mike Vrabel’s Hubris Made Him the Main Character o...
-**Body:** The first round of the 2026 draft lacked juice. Enter the Patriots coach, NFL reporter Dianna Russini, and the sex scandal that won’t go away.
+### Short 1: Iran talks to resume this weekend without Vance - The Washington Post
+**Hook:** Did you hear about this? Iran talks to resume this weekend without Vance - ...
+**Body:** The White House will send Steve Witkoff and Jared Kushner to talks in Islamabad, Pakistan, as Tehran decides not to send its top negotiator.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Steelers thought they were getting Makai Lemon, didn’t realize Eagles had cut the line - NBC Sports
-**Hook:** Did you hear about this? Steelers thought they were getting Makai Lemon, di...
-**Body:** As the Steelers moved quickly with the truncated window to make their first pick in the 2026 draft, they didn't know the guy they wanted was already gone.
+### Short 2: 2026 NFL Draft: Steals and reaches from Day 2 - PFF
+**Hook:** Did you hear about this? 2026 NFL Draft: Steals and reaches from Day 2 - PF...
+**Body:** PFF Grades and Big Board rankings break down the biggest steals and reaches from Day 2 of the 2026 NFL Draft, highlighting where teams gained or lost value.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: China’s DeepSeek Launches Long-Awaited AI Model - WSJ
-**Hook:** Did you hear about this? China’s DeepSeek Launches Long-Awaited AI Model - ...
-**Body:** Company’s V4 model also marks a milestone for Chinese chips
+### Short 3: Justice Department to allow firing squads for executions in move to ramp up capital punishment - NPR
+**Hook:** Did you hear about this? Justice Department to allow firing squads for exec...
+**Body:** The Justice Department will adopt firing squad as a permitted method of execution as the Trump administration moves to ramp up and expedite capital punishment cases.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
