@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Iran talks to resume this weekend without Vance - The Washington Post
-**Hook:** Did you hear about this? Iran talks to resume this weekend without Vance - ...
-**Body:** The White House will send Steve Witkoff and Jared Kushner to talks in Islamabad, Pakistan, as Tehran decides not to send its top negotiator.
+### Short 1: Sabastian Sawe of Kenya wins London Marathon in world-record time, first to finish under two hours - AP News
+**Hook:** Did you hear about this? Sabastian Sawe of Kenya wins London Marathon in wo...
+**Body:** Sabastian Sawe of Kenya has become the first person to break the fabled 2-hour barrier in the marathon in a huge moment in sports history. Sawe smashed the men’s world record by 65 seconds in winning the London Marathon in 1 hour, 59 minutes and 30 seconds. T…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: 2026 NFL Draft: Steals and reaches from Day 2 - PFF
-**Hook:** Did you hear about this? 2026 NFL Draft: Steals and reaches from Day 2 - PF...
-**Body:** PFF Grades and Big Board rankings break down the biggest steals and reaches from Day 2 of the 2026 NFL Draft, highlighting where teams gained or lost value.
+### Short 2: Northern Ireland homes evacuated after reports of car bomb explosion - CBS News
+**Hook:** Did you hear about this? Northern Ireland homes evacuated after reports of ...
+**Body:** Police in Northern Ireland declared a security alert in the town of Dunmurry, on the outskirts of Belfast, after reports that a car bomb exploded near a police station.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Justice Department to allow firing squads for executions in move to ramp up capital punishment - NPR
-**Hook:** Did you hear about this? Justice Department to allow firing squads for exec...
-**Body:** The Justice Department will adopt firing squad as a permitted method of execution as the Trump administration moves to ramp up and expedite capital punishment cases.
+### Short 3: Mali’s Defence Minister Sadio Camara killed amid coordinated attacks - Al Jazeera
+**Hook:** Did you hear about this? Mali’s Defence Minister Sadio Camara killed amid c...
+**Body:** Death of influential minister seen as a big blow for Mali’s military government during fighting with armed groups.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
