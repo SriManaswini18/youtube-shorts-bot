@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Sabastian Sawe of Kenya wins London Marathon in world-record time, first to finish under two hours - AP News
-**Hook:** Did you hear about this? Sabastian Sawe of Kenya wins London Marathon in wo...
-**Body:** Sabastian Sawe of Kenya has become the first person to break the fabled 2-hour barrier in the marathon in a huge moment in sports history. Sawe smashed the men’s world record by 65 seconds in winning the London Marathon in 1 hour, 59 minutes and 30 seconds. T…
+### Short 1: China says it will reverse major AI acquisition by Meta - The Washington Post
+**Hook:** Did you hear about this? China says it will reverse major AI acquisition by...
+**Body:** The move against Manus AI is Beijing’s most aggressive step yet to stanch the loss of AI talent to the U.S., setting up a complicated legal and political fight.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Northern Ireland homes evacuated after reports of car bomb explosion - CBS News
-**Hook:** Did you hear about this? Northern Ireland homes evacuated after reports of ...
-**Body:** Police in Northern Ireland declared a security alert in the town of Dunmurry, on the outskirts of Belfast, after reports that a car bomb exploded near a police station.
+### Short 2: Dow Set to Open Down Ahead of Busy Week for Markets - Barron's
+**Hook:** Did you hear about this? Dow Set to Open Down Ahead of Busy Week for Market...
+**Body:** Dow, S&P 500, Nasdaq futures are little changed as the stock market looks ahead to a busy week of Big Tech earnings.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Mali’s Defence Minister Sadio Camara killed amid coordinated attacks - Al Jazeera
-**Hook:** Did you hear about this? Mali’s Defence Minister Sadio Camara killed amid c...
-**Body:** Death of influential minister seen as a big blow for Mali’s military government during fighting with armed groups.
+### Short 3: United Airlines CEO confirms he approached American Airlines about merger - CNBC
+**Hook:** Did you hear about this? United Airlines CEO confirms he approached America...
+**Body:** United CEO Scott Kirby said American rejected the idea, "and without a willing partner, something this big simply can't get done."
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
