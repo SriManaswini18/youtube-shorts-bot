@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Six injured in Washington state school stabbing - BBC
-**Hook:** Did you hear about this? Six injured in Washington state school stabbing - ...
-**Body:** Five students and one security guard were taken to hospital following the attack at Foss High School.
+### Short 1: 'RHOBH’ Kathy Hilton Fighting Injured House Guest Over $$$ Demand - TMZ
+**Hook:** Did you hear about this? 'RHOBH’ Kathy Hilton Fighting Injured House Guest ...
+**Body:** 'Real Housewives of Beverly Hills' star Kathy Hilton said the house guest suing her over an alleged fall at her Bel Air mansion may have caused her own injuries ... TMZ has learned.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Knicks 140-89 Hawks (Apr 30, 2026) Game Recap - ESPN
-**Hook:** Did you hear about this? Knicks 140-89 Hawks (Apr 30, 2026) Game Recap - ES...
-**Body:** None
+### Short 2: Appeals court limits abortion pill access nationwide - The Washington Post
+**Hook:** Did you hear about this? Appeals court limits abortion pill access nationwi...
+**Body:** A federal appeals court issued a ruling that would temporarily block people from accessing abortion pills through telehealth providers and via mail.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Jewish Londoners describe "utter horror" and living in fear after latest attack, demand government action - CBS News
-**Hook:** Did you hear about this? Jewish Londoners describe "utter horror" and livin...
-**Body:** "We've been warning about this for a long time," one local resident told CBS News. "It's like a tsunami — you see the smaller waves before the big one hits."
+### Short 3: Live Updates: Trump "not satisfied" with new peace deal offered by Iran as standoff's costs multiply - CBS News
+**Hook:** Did you hear about this? Live Updates: Trump "not satisfied" with new peace...
+**Body:** Iran said it had offered a new proposal to the U.S. to end the war, as the Strait of Hormuz standoff sends costs soaring around the world.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
