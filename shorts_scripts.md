@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: 'RHOBH’ Kathy Hilton Fighting Injured House Guest Over $$$ Demand - TMZ
-**Hook:** Did you hear about this? 'RHOBH’ Kathy Hilton Fighting Injured House Guest ...
-**Body:** 'Real Housewives of Beverly Hills' star Kathy Hilton said the house guest suing her over an alleged fall at her Bel Air mansion may have caused her own injuries ... TMZ has learned.
+### Short 1: Kentucky Derby 2026: Cherie DeVaux makes history as Golden Tempo wins after late surge - BBC
+**Hook:** Did you hear about this? Kentucky Derby 2026: Cherie DeVaux makes history a...
+**Body:** Golden Tempo comes from the back of the field to win a thrilling Kentucky Derby as Cherie DeVaux becomes the first victorious female trainer.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Appeals court limits abortion pill access nationwide - The Washington Post
-**Hook:** Did you hear about this? Appeals court limits abortion pill access nationwi...
-**Body:** A federal appeals court issued a ruling that would temporarily block people from accessing abortion pills through telehealth providers and via mail.
+### Short 2: Taiwan leader visits Eswatini despite China’s attempts to block trip - Al Jazeera
+**Hook:** Did you hear about this? Taiwan leader visits Eswatini despite China’s atte...
+**Body:** President William Lai Ching-te says he met King Mswati III and signed trade agreements.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Live Updates: Trump "not satisfied" with new peace deal offered by Iran as standoff's costs multiply - CBS News
-**Hook:** Did you hear about this? Live Updates: Trump "not satisfied" with new peace...
-**Body:** Iran said it had offered a new proposal to the U.S. to end the war, as the Strait of Hormuz standoff sends costs soaring around the world.
+### Short 3: Drugmakers ask Supreme Court to restore abortion pill access by mail - The Washington Post
+**Hook:** Did you hear about this? Drugmakers ask Supreme Court to restore abortion p...
+**Body:** The U.S. Court of Appeals for the 5th Circuit ruled that the commonly used abortion drug mifepristone can only be picked up in-person.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
