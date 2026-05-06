@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Poisonous black rain falls in Russia as Ukraine strikes oil facilities - washingtonpost.com
-**Hook:** Did you hear about this? Poisonous black rain falls in Russia as Ukraine st...
-**Body:** Residents of Tuapse, on the Black Sea, complained of an inadequate government response and coverup of what they say is a huge environmental and health disaster.
+### Short 1: Coinbase cuts headcount by 14% citing AI acceleration. The shares are gaining - CNBC
+**Hook:** Did you hear about this? Coinbase cuts headcount by 14% citing AI accelerat...
+**Body:** Coinbase will cut roughly 14% of its workforce, citing a combination of market volatility and the how AI is quickly changing how the company operates.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Live updates: Iran warns American forces in Strait of Hormuz will be attacked if US guides ships - CNN
-**Hook:** Did you hear about this? Live updates: Iran warns American forces in Strait...
-**Body:** An Iranian official warned American forces will be attacked if they try to approach or enter the oil chokepoint, after President Donald Trump said the US military will begin guiding stranded ships through the strait today. Follow for live updates.
+### Short 2: Why Reddit blocked my daily visit to its mobile website - Ars Technica
+**Hook:** Did you hear about this? Why Reddit blocked my daily visit to its mobile we...
+**Body:** Reddit REALLY wants you to use its app.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: In many states, election-denying candidates are running to control voting - NPR
-**Hook:** Did you hear about this? In many states, election-denying candidates are ru...
-**Body:** In 23 states, including five presidential swing states, candidates who have denied election results are running for offices that have a direct role in certifying future elections, a new report finds.
+### Short 3: U.S. attempt to open Strait of Hormuz tests fragile Iran war ceasefire - NPR
+**Hook:** Did you hear about this? U.S. attempt to open Strait of Hormuz tests fragil...
+**Body:** The Iran war risked reigniting after the U.S. tried to force open the Strait of Hormuz, though a ceasefire seemed to be holding Tuesday even after the United Arab Emirates said Iran fired missiles and drones at it.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
