@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Trump says Iran will be bombed 'at much higher level' if they don't agree peace deal - CNBC
-**Hook:** Did you hear about this? Trump says Iran will be bombed 'at much higher lev...
-**Body:** Washington reportedly expects responses from Tehran on several key points within the next 48 hours.
+### Short 1: Hantavirus latest updates: Confirmed cases rise to 5 from Dutch cruise ship, WHO says - Yahoo
+**Hook:** Did you hear about this? Hantavirus latest updates: Confirmed cases rise to...
+**Body:** Three people – a Dutch couple and a German national – have died in the outbreak on the MV Hondius. There are eight confirmed or suspected cases in total.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Some iPhone owners could get up to $95 payment after Apple agrees to settle case for $250 million - AP News
-**Hook:** Did you hear about this? Some iPhone owners could get up to $95 payment aft...
-**Body:** Apple has agreed to a $250 million settlement in a class-action lawsuit over false advertising of Siri's AI capabilities. The lawsuit claims Apple misled consumers by promoting features that didn't exist when the iPhone 16 launched in 2024. If approved, the d…
+### Short 2: Your heart rate is more uneven than you think. This is what it says about your health - BBC
+**Hook:** Did you hear about this? Your heart rate is more uneven than you think. Thi...
+**Body:** Micro-fluctuations in the time between heartbeats are proving a helpful indicator of mental health, stress levels, exercise capacity and even how well you are ageing.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Dow futures surge 500 points as oil dives on report Iran war nearing end, AMD jumps: Live updates - CNBC
-**Hook:** Did you hear about this? Dow futures surge 500 points as oil dives on repor...
-**Body:** Buoyed by solid earnings and lower oil prices, the S&P 500 and Nasdaq Composite both reached new intraday and closing highs on Tuesday.
+### Short 3: Live updates: Iran expected to respond Thursday to US proposal for ending war, source says - CNN
+**Hook:** Did you hear about this? Live updates: Iran expected to respond Thursday to...
+**Body:** The United States and Iran are working to reach an agreement to end the war. Follow for live updates.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
