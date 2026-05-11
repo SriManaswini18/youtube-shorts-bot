@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Frontier Airlines jet bound for LAX hits person on runway in Denver, aviation source tells ABC News - ABC7 Los Angeles
-**Hook:** Did you hear about this? Frontier Airlines jet bound for LAX hits person on...
-**Body:** Pilots reported an engine fire and smoke inside the aircraft after the incident.
+### Short 1: Hantavirus live updates: MV Hondius arrives off the coast of Tenerife - ABC7 Chicago
+**Hook:** Did you hear about this? Hantavirus live updates: MV Hondius arrives off th...
+**Body:** Teams will bring back Americans to the National Quarantine Unit in Nebraska.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: 3 things to watch in Spurs-Timberwolves Game 3 - NBA
-**Hook:** Did you hear about this? 3 things to watch in Spurs-Timberwolves Game 3 - N...
-**Body:** Both teams look to sprint out of the gates in Game 3 while San Antonio attempts to grab back home-court advantage.
+### Short 2: In the Kristin Smart case, key questions remain after 3 decades - CNN
+**Hook:** Did you hear about this? In the Kristin Smart case, key questions remain af...
+**Body:** The investigation into the 1996 disappearance of Kristin Smart has been characterized by decades of critical questions, starting with the whereabouts of her remains.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Spain readies for evacuations as a hantavirus-hit cruise ship heads for the Canary Islands - AP News
-**Hook:** Did you hear about this? Spain readies for evacuations as a hantavirus-hit ...
-**Body:** Spanish authorities are preparing to receive over 140 passengers and crew from a hantavirus-stricken cruise ship headed for the Canary Islands. Health officials plan careful evacuations when the ship arrives in Tenerife this weekend. At least three passengers…
+### Short 3: Iran ceasefire tested as cargo ship catches fire after being hit off Qatar's coast - NPR
+**Hook:** Did you hear about this? Iran ceasefire tested as cargo ship catches fire a...
+**Body:** A cargo ship caught fire Sunday after being hit by an unknown projectile off Qatar's coast, the British military said.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
