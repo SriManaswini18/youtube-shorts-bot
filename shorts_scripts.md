@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: EBay Rejects GameStop’s $56 Billion Takeover as Not Credible - Bloomberg.com
-**Hook:** Did you hear about this? EBay Rejects GameStop’s $56 Billion Takeover as No...
-**Body:** EBay Inc. rejected a $56 billion takeover offer from GameStop Corp. Chief Executive Officer Ryan Cohen, describing the unsolicited bid as “neither credible nor attractive.”
+### Short 1: Alabama jail staff didn’t help when she went into labor — other inmates did, lawsuit says - NBC News
+**Hook:** Did you hear about this? Alabama jail staff didn’t help when she went into ...
+**Body:** In a state with a long history of arresting pregnant women, one mom in custody says she was left to fend for herself.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: How passengers from hantavirus-hit cruise ship are quarantining in U.S. - The Washington Post
-**Hook:** Did you hear about this? How passengers from hantavirus-hit cruise ship are...
-**Body:** More than a dozen Americans from the cruise ship at the center of the outbreak are being watched at a Nebraska facility, as the total number of cases rises to 11.
+### Short 2: 10,000 rulings: The courts’ overwhelming rebuke of Trump’s ICE policies - Politico
+**Hook:** Did you hear about this? 10,000 rulings: The courts’ overwhelming rebuke of...
+**Body:** A POLITICO analysis reveals judges have ruled against ICE detention practices in roughly 90 percent of cases since the agency mandated that millions of immigrants must be locked up while they face deportation proceedings.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: The Nancy Guthrie investigation could hang on a strand of DNA - CBS News
-**Hook:** Did you hear about this? The Nancy Guthrie investigation could hang on a st...
-**Body:** A strand of DNA. An eerie doorbell video. The investigation into Nancy Guthrie's disappearance reaches 100th day with no sign of a breakthrough.
+### Short 3: Ja Morant pays emotional tribute to Brandon Clarke after Memphis Grizzlies star dies aged 29 - talkSPORT
+**Hook:** Did you hear about this? Ja Morant pays emotional tribute to Brandon Clarke...
+**Body:** Memphis Grizzlies forward Brandon Clarke has passed away at eh age of 29
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
