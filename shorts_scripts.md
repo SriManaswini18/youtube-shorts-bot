@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Alabama jail staff didn’t help when she went into labor — other inmates did, lawsuit says - NBC News
-**Hook:** Did you hear about this? Alabama jail staff didn’t help when she went into ...
-**Body:** In a state with a long history of arresting pregnant women, one mom in custody says she was left to fend for herself.
+### Short 1: Wes Streeting resigns as health secretary - his letter in full - BBC
+**Hook:** Did you hear about this? Wes Streeting resigns as health secretary - his le...
+**Body:** Health Secretary Wes Streeting has announced his resignation from government.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: 10,000 rulings: The courts’ overwhelming rebuke of Trump’s ICE policies - Politico
-**Hook:** Did you hear about this? 10,000 rulings: The courts’ overwhelming rebuke of...
-**Body:** A POLITICO analysis reveals judges have ruled against ICE detention practices in roughly 90 percent of cases since the agency mandated that millions of immigrants must be locked up while they face deportation proceedings.
+### Short 2: Stock Market Today: Stock Futures Tick Up With AI Trade Top of Mind Again — Live Updates - WSJ
+**Hook:** Did you hear about this? Stock Market Today: Stock Futures Tick Up With AI ...
+**Body:** None
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Ja Morant pays emotional tribute to Brandon Clarke after Memphis Grizzlies star dies aged 29 - talkSPORT
-**Hook:** Did you hear about this? Ja Morant pays emotional tribute to Brandon Clarke...
-**Body:** Memphis Grizzlies forward Brandon Clarke has passed away at eh age of 29
+### Short 3: Versant reports first-quarter revenue decline, with bright spots in platforms and licensing - CNBC
+**Hook:** Did you hear about this? Versant reports first-quarter revenue decline, wit...
+**Body:** Versant, the portfolio of TV networks spun out from Comcast, reported earnings for its first quarter as an independent company.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
