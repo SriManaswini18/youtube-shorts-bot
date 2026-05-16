@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Wes Streeting resigns as health secretary - his letter in full - BBC
-**Hook:** Did you hear about this? Wes Streeting resigns as health secretary - his le...
-**Body:** Health Secretary Wes Streeting has announced his resignation from government.
+### Short 1: Korean Stocks Tumble After Reaching Milestone as Foreigners Sell - Bloomberg.com
+**Hook:** Did you hear about this? Korean Stocks Tumble After Reaching Milestone as F...
+**Body:** South Korea’s world-beating stock rally came to a sudden halt as the benchmark tumbled on Friday, underscoring the vulnerability of a market dominated by a pair of chipmakers.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Stock Market Today: Stock Futures Tick Up With AI Trade Top of Mind Again — Live Updates - WSJ
-**Hook:** Did you hear about this? Stock Market Today: Stock Futures Tick Up With AI ...
-**Body:** None
+### Short 2: ‘The Mandalorian and Grogu’ Gets Divided First Reactions, From a ‘Thrilling Adventure’ to ‘One of the Weakest Star Wars Movies’ and a ‘Snooze Fest’ - Variety
+**Hook:** Did you hear about this? ‘The Mandalorian and Grogu’ Gets Divided First Rea...
+**Body:** Pedro Pascal is back as the Mandalorian as members of the film press weigh in on return of "Star Wars" to the big screen.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Versant reports first-quarter revenue decline, with bright spots in platforms and licensing - CNBC
-**Hook:** Did you hear about this? Versant reports first-quarter revenue decline, wit...
-**Body:** Versant, the portfolio of TV networks spun out from Comcast, reported earnings for its first quarter as an independent company.
+### Short 3: May 14, 2026 - Letters from an American | Heather Cox Richardson | Substack
+**Hook:** Did you hear about this? May 14, 2026 - Letters from an American | Heather ...
+**Body:** Vice President J.D.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
