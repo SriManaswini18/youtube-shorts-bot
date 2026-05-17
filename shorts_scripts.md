@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Korean Stocks Tumble After Reaching Milestone as Foreigners Sell - Bloomberg.com
-**Hook:** Did you hear about this? Korean Stocks Tumble After Reaching Milestone as F...
-**Body:** South Korea’s world-beating stock rally came to a sudden halt as the benchmark tumbled on Friday, underscoring the vulnerability of a market dominated by a pair of chipmakers.
+### Short 1: Spurs 139-109 Timberwolves (May 15, 2026) Game Recap - ESPN
+**Hook:** Did you hear about this? Spurs 139-109 Timberwolves (May 15, 2026) Game Rec...
+**Body:** None
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: ‘The Mandalorian and Grogu’ Gets Divided First Reactions, From a ‘Thrilling Adventure’ to ‘One of the Weakest Star Wars Movies’ and a ‘Snooze Fest’ - Variety
-**Hook:** Did you hear about this? ‘The Mandalorian and Grogu’ Gets Divided First Rea...
-**Body:** Pedro Pascal is back as the Mandalorian as members of the film press weigh in on return of "Star Wars" to the big screen.
+### Short 2: Taylor Swift and Travis Kelce Enjoy a Date Night As Wedding Rumors Swirl - TMZ
+**Hook:** Did you hear about this? Taylor Swift and Travis Kelce Enjoy a Date Night A...
+**Body:** Taylor Swift has been all over the Big Apple recently, and now she’s hitting the town with her man -- Travis Kelce -- for a dinner date ... while the lovebirds keep the world in utter suspense about ... well ... you know what.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: May 14, 2026 - Letters from an American | Heather Cox Richardson | Substack
-**Hook:** Did you hear about this? May 14, 2026 - Letters from an American | Heather ...
-**Body:** Vice President J.D.
+### Short 3: Man killed by 13ft great white shark in Western Australia - BBC
+**Hook:** Did you hear about this? Man killed by 13ft great white shark in Western Au...
+**Body:** The man was bitten just before 10:00 (03:00 BST) at Horseshoe Reef - north-west of the popular Rottnest Island near the city of Perth, local police said.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
