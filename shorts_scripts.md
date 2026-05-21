@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Russia holds massive drills of its nuclear forces - NBC News
-**Hook:** Did you hear about this? Russia holds massive drills of its nuclear forces ...
-**Body:** Russia on Tuesday began massive maneuvers of its nuclear forces featuring practice launches of nuclear-capable ballistic and cruise missiles in drills that come amid surge in Ukrainian drone strikes
+### Short 1: 30-second bursts of exercise may help reduce panic attacks, study finds - The Washington Post
+**Hook:** Did you hear about this? 30-second bursts of exercise may help reduce panic...
+**Body:** Experts are hopeful that 30-second bursts of activity could be an effective therapy for those with panic disorder.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Surprising drug combo could reshape treatment for suicide risk - The Washington Post
-**Hook:** Did you hear about this? Surprising drug combo could reshape treatment for ...
-**Body:** A new study suggests a single ketamine infusion followed by low-dose buprenorphine significantly sustained reductions in suicidal ideation in adults with major depressive disorder.
+### Short 2: Harry Styles’ Team Responds to Fan Complaints About Obstructed ‘Together, Together’ Tour Sightlines - Yahoo
+**Hook:** Did you hear about this? Harry Styles’ Team Responds to Fan Complaints Abou...
+**Body:** Fans attending the opening dates of Harry ‘Together, Together’ tour have shared concerns online about obstructed views from premium floor sections.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: A critical window to stop hantavirus is opening. Not all countries are managing exposed travelers the same way - CNN
-**Hook:** Did you hear about this? A critical window to stop hantavirus is opening. N...
-**Body:** The hantavirus-stricken cruise ship MV Hondius arrived at its last stop Monday. Now, the waiting begins.
+### Short 3: ‘Even better than tech.’ A scramble into this sector is coming, warns veteran wealth manager. - MarketWatch
+**Hook:** Did you hear about this? ‘Even better than tech.’ A scramble into this sect...
+**Body:** Ted Oakley says ‘own the whole gamut’
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
