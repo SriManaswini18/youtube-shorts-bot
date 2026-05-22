@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: 30-second bursts of exercise may help reduce panic attacks, study finds - The Washington Post
-**Hook:** Did you hear about this? 30-second bursts of exercise may help reduce panic...
-**Body:** Experts are hopeful that 30-second bursts of activity could be an effective therapy for those with panic disorder.
+### Short 1: Column | A live TV gaffe turned the ‘Survivor 50’ finale into a fitting train wreck - The Washington Post
+**Hook:** Did you hear about this? Column | A live TV gaffe turned the ‘Survivor 50’ ...
+**Body:** An inadvertent spoiler from host Jeff Probst ensured that a season filled with missteps would end with the biggest one of all.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Harry Styles’ Team Responds to Fan Complaints About Obstructed ‘Together, Together’ Tour Sightlines - Yahoo
-**Hook:** Did you hear about this? Harry Styles’ Team Responds to Fan Complaints Abou...
-**Body:** Fans attending the opening dates of Harry ‘Together, Together’ tour have shared concerns online about obstructed views from premium floor sections.
+### Short 2: The teens who attacked the Islamic Center of San Diego were latest to cite prior atrocities - The Seattle Times
+**Hook:** Did you hear about this? The teens who attacked the Islamic Center of San D...
+**Body:** An attack at a California Islamic center is the latest violence where the perpetrators said they were inspired by past atrocities, such as the 2019 massacre in Christchurch, New Zealand.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: ‘Even better than tech.’ A scramble into this sector is coming, warns veteran wealth manager. - MarketWatch
-**Hook:** Did you hear about this? ‘Even better than tech.’ A scramble into this sect...
-**Body:** Ted Oakley says ‘own the whole gamut’
+### Short 3: AI turned Samsung into a $1 trillion company. Its workers want a bigger slice of the pie - CNN
+**Hook:** Did you hear about this? AI turned Samsung into a $1 trillion company. Its ...
+**Body:** Samsung Electronics, South Korea’s largest corporation, has become one of the leading beneficiaries of the global artificial intelligence boom. But one segment of the country is unhappy with the result: Samsung workers.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
