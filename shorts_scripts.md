@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Column | A live TV gaffe turned the ‘Survivor 50’ finale into a fitting train wreck - The Washington Post
-**Hook:** Did you hear about this? Column | A live TV gaffe turned the ‘Survivor 50’ ...
-**Body:** An inadvertent spoiler from host Jeff Probst ensured that a season filled with missteps would end with the biggest one of all.
+### Short 1: A neuroscientist's guide to future-proofing your brain and thinking smarter in the 21st Century - BBC
+**Hook:** Did you hear about this? A neuroscientist's guide to future-proofing your b...
+**Body:** In her new book, The 21st Century Brain, scientist Hannah Critchlow explores the overlooked skills that will be necessary to flourish in the age of AI – and how we can cultivate them.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: The teens who attacked the Islamic Center of San Diego were latest to cite prior atrocities - The Seattle Times
-**Hook:** Did you hear about this? The teens who attacked the Islamic Center of San D...
-**Body:** An attack at a California Islamic center is the latest violence where the perpetrators said they were inspired by past atrocities, such as the 2019 massacre in Christchurch, New Zealand.
+### Short 2: Trump's revenge politics comes back to haunt him - Axios
+**Hook:** Did you hear about this? Trump's revenge politics comes back to haunt him -...
+**Body:** Trump's targeting of GOP foes is hurting his agenda on Capitol Hill.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: AI turned Samsung into a $1 trillion company. Its workers want a bigger slice of the pie - CNN
-**Hook:** Did you hear about this? AI turned Samsung into a $1 trillion company. Its ...
-**Body:** Samsung Electronics, South Korea’s largest corporation, has become one of the leading beneficiaries of the global artificial intelligence boom. But one segment of the country is unhappy with the result: Samsung workers.
+### Short 3: Why Trump's AI executive order was pulled - Axios
+**Hook:** Did you hear about this? Why Trump's AI executive order was pulled - Axios...
+**Body:** Any further delay of the order means more time for infighting and disagreements.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
