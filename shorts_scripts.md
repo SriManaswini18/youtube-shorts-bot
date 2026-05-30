@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: A rare blue micromoon rises this weekend - AP News
-**Hook:** Did you hear about this? A rare blue micromoon rises this weekend - AP News...
-**Body:** Get set for a rare blue micromoon this weekend. It's when a blue moon that's also the most distant and smallest-looking full moon of the year rises. The brilliant star Antares will photobomb Sunday's spectacle for a celestial three-for-one. A blue moon occurs…
+### Short 1: Stock Market Today: Dow Futures Tick Up - WSJ
+**Hook:** Did you hear about this? Stock Market Today: Dow Futures Tick Up - WSJ...
+**Body:** None
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Live Updates: Iran fires missile at Kuwait after U.S. strikes, as Trump says regime "negotiating on fumes" - CBS News
-**Hook:** Did you hear about this? Live Updates: Iran fires missile at Kuwait after U...
-**Body:** Iran says it targeted a U.S. base in retaliation for the second set of what the Pentagon calls "purely defensive" strikes carried out this week.
+### Short 2: Five Of Nine Acts Have Pulled Out Of Trump’s ‘Great American State Fair’—Bret Michaels The Latest - Forbes
+**Hook:** Did you hear about this? Five Of Nine Acts Have Pulled Out Of Trump’s ‘Grea...
+**Body:** Bret Michaels said the event has “evolved into something" that is "divisive”, while Martina McBride said she was misled about this being a nonpartisan celebration.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: "Vast fortune" belonging to legendary Mafia boss seized by police in Italy - CBS News
-**Hook:** Did you hear about this? "Vast fortune" belonging to legendary Mafia boss s...
-**Body:** Italy said it was seizing $232 million in assets belonging to the late Mafia boss Matteo Messina Denaro, who was captured after 30 years on the run.
+### Short 3: Pam Bondi is set for another Hill grilling — but not the one some lawmakers hoped for - Politico
+**Hook:** Did you hear about this? Pam Bondi is set for another Hill grilling — but n...
+**Body:** The ousted former attorney general is scheduled to answer questions Friday from the House Oversight Committee on how she handled the release of the Jeffrey Epstein files.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
