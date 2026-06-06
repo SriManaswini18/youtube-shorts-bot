@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: S&P 500 futures fall as Broadcom leads chip stocks lower: Live updates - CNBC
-**Hook:** Did you hear about this? S&P 500 futures fall as Broadcom leads chip stocks...
-**Body:** Rising oil prices and Treasury yields weighed all three major indexes lower on Wednesday.
+### Short 1: There’s More to Space Stocks Than SpaceX - WSJ
+**Hook:** Did you hear about this? There’s More to Space Stocks Than SpaceX - WSJ...
+**Body:** None
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: The Eagles fleeced the Patriots in the A.J. Brown trade - PhillyVoice
-**Hook:** Did you hear about this? The Eagles fleeced the Patriots in the A.J. Brown ...
-**Body:** A deep examination into how and why the Eagles got the best of the Patriots in the trade for A.J. Brown.
+### Short 2: Blueprint of a cure: The rare people who are invulnerable to HIV - BBC
+**Hook:** Did you hear about this? Blueprint of a cure: The rare people who are invul...
+**Body:** Scientists are studying the few extraordinary individuals whose bodies seem able to naturally defend themselves from HIV in the hope of finding new cures.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: US secures Israel-Lebanon ceasefire as House votes to curb Trump war powers - Fox News
-**Hook:** Did you hear about this? US secures Israel-Lebanon ceasefire as House votes...
-**Body:** The U.S. secures an Israel-Lebanon ceasefire as the House votes to limit President Donald Trump’s war powers, escalating debate over presidential military authority, foreign policy and Middle East conflict.
+### Short 3: Chinese leader Xi Jinping visit to North Korea confirmed for next week - South China Morning Post
+**Hook:** Did you hear about this? Chinese leader Xi Jinping visit to North Korea con...
+**Body:** Relations rebuilding after years of relative isolation due to pandemic, Beijing’s denuclearisation stance and closer Pyongyang-Moscow ties.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
