@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: U.S. stock futures mixed as Mideast tensions rise; South Korea's Kospi plunges 8%: Live updates - CNBC
-**Hook:** Did you hear about this? U.S. stock futures mixed as Mideast tensions rise;...
-**Body:** Investors will also be focused on inflation data and the public debut of SpaceX on Friday.
+### Short 1: How to buy SpaceX shares as its blockbuster IPO readies for liftoff - CBS News
+**Hook:** Did you hear about this? How to buy SpaceX shares as its blockbuster IPO re...
+**Body:** SpaceX is setting aside a large chunk of shares for ordinary investors as it seeks to raise a record $75 billion. Here's what to know.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Trump Tells Israel and Iran to Stop Exchanges of Fire - WSJ
-**Hook:** Did you hear about this? Trump Tells Israel and Iran to Stop Exchanges of F...
-**Body:** None
+### Short 2: A government-commissioned study found drinking risks. US guidelines didn't feature its findings - AP News
+**Hook:** Did you hear about this? A government-commissioned study found drinking ris...
+**Body:** Researchers commissioned by President Joe Biden's Democratic administration to investigate alcohol-related health harms have released their findings independently. That's after President Donald Trump's Republican administration decided not to feature the find…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: 6 people stabbed at Penn Station. Here's what we know. - CBS News
-**Hook:** Did you hear about this? 6 people stabbed at Penn Station. Here's what we k...
-**Body:** Law enforcement responded after six people were stabbed at Penn Station on Sunday evening. At least victim's wounds were serious, authorities said.
+### Short 3: Big Ten to discuss a mandate to not play Texas Tech in any sport, given the Brendan Sorsby ruling - NBC Sports
+**Hook:** Did you hear about this? Big Ten to discuss a mandate to not play Texas Tec...
+**Body:** Monday's ruling in the Brendan Sorsby case has had ripple effects far beyond Texas Tech and the Big 12 conference.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
