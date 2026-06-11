@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: How to buy SpaceX shares as its blockbuster IPO readies for liftoff - CBS News
-**Hook:** Did you hear about this? How to buy SpaceX shares as its blockbuster IPO re...
-**Body:** SpaceX is setting aside a large chunk of shares for ordinary investors as it seeks to raise a record $75 billion. Here's what to know.
+### Short 1: Consumer prices rose 4.2% annually in May, highest in three years - CNBC
+**Hook:** Did you hear about this? Consumer prices rose 4.2% annually in May, highest...
+**Body:** The consumer price index was expected to show a 4.2% gain from a year ago, according to the Dow Jones consensus estimate.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: A government-commissioned study found drinking risks. US guidelines didn't feature its findings - AP News
-**Hook:** Did you hear about this? A government-commissioned study found drinking ris...
-**Body:** Researchers commissioned by President Joe Biden's Democratic administration to investigate alcohol-related health harms have released their findings independently. That's after President Donald Trump's Republican administration decided not to feature the find…
+### Short 2: 3 ways GLP-1 drugs could be getting better - The Washington Post
+**Hook:** Did you hear about this? 3 ways GLP-1 drugs could be getting better - The W...
+**Body:** Drug companies are racing to catch up to Eli Lilly and Novo Nordisk, seeking to require fewer shots or reduce side effects.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Big Ten to discuss a mandate to not play Texas Tech in any sport, given the Brendan Sorsby ruling - NBC Sports
-**Hook:** Did you hear about this? Big Ten to discuss a mandate to not play Texas Tec...
-**Body:** Monday's ruling in the Brendan Sorsby case has had ripple effects far beyond Texas Tech and the Big 12 conference.
+### Short 3: 19 Things to Know About Gwynne Shotwell, SpaceX’s President - WSJ
+**Hook:** Did you hear about this? 19 Things to Know About Gwynne Shotwell, SpaceX’s ...
+**Body:** None
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
