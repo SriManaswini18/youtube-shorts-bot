@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: 1 killed in Iowa as severe storms, suspected tornadoes slam Midwest - CBS News
-**Hook:** Did you hear about this? 1 killed in Iowa as severe storms, suspected torna...
-**Body:** Severe storms that swept through the Midwest late Thursday knocked out power to hundreds of thousands of customers, damaged buildings and canceled flights.
+### Short 1: John Healey wanted UK to join global investment bank to raise defence funds - BBC
+**Hook:** Did you hear about this? John Healey wanted UK to join global investment ba...
+**Body:** Allies of the former defence secretary claim the Treasury tried to shut down the idea.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: 'Top Gun: Maverick' Actor James Handy Died From Stab Wound and Neck Compression - TMZ
-**Hook:** Did you hear about this? 'Top Gun: Maverick' Actor James Handy Died From St...
-**Body:** James Handy died from a stab wound, the Los Angeles Medical Examiner confirmed.
+### Short 2: Switzerland is voting on whether to cap its population at 10 million. Here's what to know - CNBC
+**Hook:** Did you hear about this? Switzerland is voting on whether to cap its popula...
+**Body:** Switzerland votes on a population cap that could tighten immigration and put its EU free-movement agreement under pressure.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Can smartphones help explain the drop in birth rates? - NPR
-**Hook:** Did you hear about this? Can smartphones help explain the drop in birth rat...
-**Body:** Are smartphones causing people to have fewer children?  A provocative new working paper explores the persistent drop in birth rates since the iPhone was introduced nearly two decades ago.
+### Short 3: Pope Leo XIV's flight home from Spain was grounded so the king came to his aid - NPR
+**Hook:** Did you hear about this? Pope Leo XIV's flight home from Spain was grounded...
+**Body:** Leo's Iberia charter, due to take him back to Rome after a weeklong visit to Spain, was grounded by a technical problem Friday, prompting Spain's king to offer his private jet instead.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
