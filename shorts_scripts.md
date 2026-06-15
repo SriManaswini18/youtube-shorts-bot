@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: John Healey wanted UK to join global investment bank to raise defence funds - BBC
-**Hook:** Did you hear about this? John Healey wanted UK to join global investment ba...
-**Body:** Allies of the former defence secretary claim the Treasury tried to shut down the idea.
+### Short 1: Backlash Is Growing Over Kevin O’Leary’s Data Center. He Is Blaming China. - WSJ
+**Hook:** Did you hear about this? Backlash Is Growing Over Kevin O’Leary’s Data Cent...
+**Body:** ‘Shark Tank’ panelist blasts his detractors on TV and social media as tools of Beijing. Some locals in Utah say the tactic is backfiring.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Switzerland is voting on whether to cap its population at 10 million. Here's what to know - CNBC
-**Hook:** Did you hear about this? Switzerland is voting on whether to cap its popula...
-**Body:** Switzerland votes on a population cap that could tighten immigration and put its EU free-movement agreement under pressure.
+### Short 2: Israel continues strikes in Beirut’s southern suburbs, killing 3 - NBC News
+**Hook:** Did you hear about this? Israel continues strikes in Beirut’s southern subu...
+**Body:** Israel said its military attacked Hezbollah targets in Beirut’s southern suburbs on Sunday after the Lebanese armed group fired ⁠into Israeli territory.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Pope Leo XIV's flight home from Spain was grounded so the king came to his aid - NPR
-**Hook:** Did you hear about this? Pope Leo XIV's flight home from Spain was grounded...
-**Body:** Leo's Iberia charter, due to take him back to Rome after a weeklong visit to Spain, was grounded by a technical problem Friday, prompting Spain's king to offer his private jet instead.
+### Short 3: Mayhem mars euphoria as New York City celebrates the Knicks' first championship in 53 years - Yahoo Sports
+**Hook:** Did you hear about this? Mayhem mars euphoria as New York City celebrates t...
+**Body:** It was bedlam on Broadway as the New York Knicks won their first NBA championship in 53 years on Saturday night, with exuberant celebrations marred by mayhem...
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
