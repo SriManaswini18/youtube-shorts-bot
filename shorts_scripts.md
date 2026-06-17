@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Dow jumps 600 points, hits fresh record on potential Iran deal to end the war; SpaceX rises in second day of trading: Live updates - CNBC
-**Hook:** Did you hear about this? Dow jumps 600 points, hits fresh record on potenti...
-**Body:** The three major indexes are coming off a winning week.
+### Short 1: Live Updates: Iran says deal with U.S. requires Israeli forces to leave Lebanon - CBS News
+**Hook:** Did you hear about this? Live Updates: Iran says deal with U.S. requires Is...
+**Body:** Iran's foreign minister says Israeli troops can't remain in Lebanon under the pending deal with the U.S.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Supreme Court rejects former Trump adviser Carter Page’s bid to revive James Comey lawsuit - NBC News
-**Hook:** Did you hear about this? Supreme Court rejects former Trump adviser Carter ...
-**Body:** The Supreme Court rejected former Trump campaign adviser Carter Page’s attempt to revive a lawsuit against former FBI Director James Comey and others over their roles in a federal investigation into Russian interference in the 2016 election.
+### Short 2: Trump admits he’s ‘not happy’ with Israel over Lebanon strikes, suggests Syria ‘take care of Hezbollah’ - New York Post
+**Hook:** Did you hear about this? Trump admits he’s ‘not happy’ with Israel over Leb...
+**Body:** President Trump has acknowledged he was displeased with Israel over its weekend strikes on Lebanon, which came as he was finalizing a peace deal with Iran.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Vance says Hormuz will be back in business after U.S.-Iran breakthrough—CNBC interview (SP500:) - Seeking Alpha
-**Hook:** Did you hear about this? Vance says Hormuz will be back in business after U...
-**Body:** US-Iran peace deal to reopen Strait of Hormuz could ease oil prices; pact trades nuclear rollback for economic access.
+### Short 3: Stock Market Today: SpaceX Set to Overtake Amazon by Market Cap — Live Updates - WSJ
+**Hook:** Did you hear about this? Stock Market Today: SpaceX Set to Overtake Amazon ...
+**Body:** None
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
