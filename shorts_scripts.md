@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Kennedy orders American exposed to hantavirus to stay quarantined against her will, WSJ reports - Yahoo
-**Hook:** Did you hear about this? Kennedy orders American exposed to hantavirus to s...
-**Body:** has ordered an American passenger exposed to hantavirus on a cruise ship to remain in quarantine despite medical advice and against her ‌will, the Wall Street...
+### Short 1: Supreme Court backs a marijuana user’s challenge to a restriction on gun ownership - NBC News
+**Hook:** Did you hear about this? Supreme Court backs a marijuana user’s challenge t...
+**Body:** The Supreme Court endorsed a marijuana user's challenge to a law that bars people who consume illegal drugs from having firearms, the same law that Hunter Biden was convicted under.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Group planned to attack White House UFC event using snipers and drones, FBI says - BBC
-**Hook:** Did you hear about this? Group planned to attack White House UFC event usin...
-**Body:** In newly unsealed court filings, the government says the group allegedly expressed grievances about corruption, the Epstein files, and data centres.
+### Short 2: 7 unexpected takeaways from the newest research on cannabis and brain effects - The Washington Post
+**Hook:** Did you hear about this? 7 unexpected takeaways from the newest research on...
+**Body:** Whether it’s used in adolescence, midlife or older age may make a big difference.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Live updates: Iran warns Israel over Lebanon strikes as Trump slams Netanyahu - CNN
-**Hook:** Did you hear about this? Live updates: Iran warns Israel over Lebanon strik...
-**Body:** Iran will be able to export oil as soon as its agreement with the US is signed, according to a copy of the document obtained by CNN, which also states Iran will “never produce nuclear weapons.” Follow here for the latest.
+### Short 3: Ukrainian drones set a Moscow refinery ablaze in a major attack on the Russian capital - AP News
+**Hook:** Did you hear about this? Ukrainian drones set a Moscow refinery ablaze in a...
+**Body:** Ukraine has hit a major Moscow oil refinery for the second time in a week, disrupting hundreds of flights at the capital's airports. Russian officials said Thursday that this is one of Ukraine's biggest drone attacks since Russia’s invasion over four years ag…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
