@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: U.S.-Iran talks postponed as Vance cancels trip and Israel intensifies strikes in southern Lebanon - NBC News
-**Hook:** Did you hear about this? U.S.-Iran talks postponed as Vance cancels trip an...
-**Body:** The first peace talks between the United States and Iran were postponed Friday, as Vice President JD Vance canceled his planned travel to Switzerland and intense new Israeli strikes in Lebanon cast doubts on the deal to end the war.
+### Short 1: The Fed's Warsh era clearly has a new vibe — and that's not all bad for investors - Yahoo Finance
+**Hook:** Did you hear about this? The Fed's Warsh era clearly has a new vibe — and t...
+**Body:** Fed Chair Kevin Warsh gave his first press conference this week. Investors should welcome some of the developments.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Lebanon says Israeli strikes kill 18 as Israel says four soldiers killed by Hezbollah - BBC
-**Hook:** Did you hear about this? Lebanon says Israeli strikes kill 18 as Israel say...
-**Body:** It comes a day after the US and Iran signed a deal to end their conflict, including fighting in Lebanon.
+### Short 2: US envoy heading to Switzerland as Lebanon fighting tests Iran agreement - CNN
+**Hook:** Did you hear about this? US envoy heading to Switzerland as Lebanon fightin...
+**Body:** Steve Witkoff is traveling to Switzerland, a US official said, as Washington and Tehran work to get technical talks back on track after a postponement. Follow for live updates.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Oil prices are falling and stocks are up. Traders worry they’ve gone too far - CNN
-**Hook:** Did you hear about this? Oil prices are falling and stocks are up. Traders ...
-**Body:** The agreement to re-open the Strait of Hormuz has been met with swift relief in markets. But some traders worry the rally in stocks and drop in oil prices might be overdone.
+### Short 3: Moscow oil refinery attack brings Russia's war with Ukraine closer to home - BBC
+**Hook:** Did you hear about this? Moscow oil refinery attack brings Russia's war wit...
+**Body:** There are moments when life in Moscow feels completely normal - Thursday morning wasn't one of them, writes Steve Rosenberg.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
