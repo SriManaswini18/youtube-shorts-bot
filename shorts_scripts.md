@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: 'Toy Story 5' Box Office: Pixar Sequel Sets Franchise Opening Record - Variety
-**Hook:** Did you hear about this? 'Toy Story 5' Box Office: Pixar Sequel Sets Franch...
-**Body:** "Toy Story 5" set a franchise box office record in its opening weekend.
+### Short 1: Alan Greenspan, economist and longtime head of the Federal Reserve, dies at 100 - NBC News
+**Hook:** Did you hear about this? Alan Greenspan, economist and longtime head of the...
+**Body:** Alan Greenspan, the former chairman of the Federal Reserve Board whose economic prowess was indelibly marred for some by his actions leading up to the 2008 financial crisis, has died.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: 2026 U.S. Open final round leaderboard, live updates: Wyndham Clark leads by 6 entering Sunday at Shinnecock Hills - Yahoo Sports
-**Hook:** Did you hear about this? 2026 U.S. Open final round leaderboard, live updat...
-**Body:** Wyndham Clark is in full control of the U.S. Open.
+### Short 2: Sounds Like a Steal: 40+ Apple, Sony and Bose Deals Are Live With Prime Day Starting Tomorrow - CNET
+**Hook:** Did you hear about this? Sounds Like a Steal: 40+ Apple, Sony and Bose Deal...
+**Body:** Whether you want the best of the best or a budget pair, these are our favorite deals.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Starmer is on the precipice as pressure builds for the UK leader to resign - AP News
-**Hook:** Did you hear about this? Starmer is on the precipice as pressure builds for...
-**Body:** U.K. Prime Minister Keir Starmer is facing a crucial decision. Either step down or fight a possible leadership challenge from Labour Party rival Andy Burnham. Starmer has vowed to stay. But pressure is mounting as colleagues believe his time is up. Expectatio…
+### Short 3: Chevron to fuel massive Microsoft data center in Texas with natural gas - CNBC
+**Hook:** Did you hear about this? Chevron to fuel massive Microsoft data center in T...
+**Body:** Microsoft's embrace of natural gas shows it is willing to invest in a fossil fuel to meet the power demand from its data centers.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
