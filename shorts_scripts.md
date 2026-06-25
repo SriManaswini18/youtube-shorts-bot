@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Micron Stock Dives After Memory Chip Rivals SK Hynix, Samsung Tumble in KOSPI Selloff - Barron's
-**Hook:** Did you hear about this? Micron Stock Dives After Memory Chip Rivals SK Hyn...
-**Body:** Micron stock is dropping after SK Hynix and Samsung stocks tumbled Tuesday on the KOSPI index as the tech selloff gathers pace.
+### Short 1: As Ebola cases hit 1,000, almost 3 million children and adolescents face rising risks in eastern DR Congo - Unicef
+**Hook:** Did you hear about this? As Ebola cases hit 1,000, almost 3 million childre...
+**Body:** Ebola has left over 130 children orphaned in Ituri, driving urgent need for protection and care
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: ‘What ceasefire?’: In northern Israel, locals doubt an agreement can end the war with Hezbollah - CNN
-**Hook:** Did you hear about this? ‘What ceasefire?’: In northern Israel, locals doub...
-**Body:** In Israel’s northern-most town, Daniel Dorfman knows his pizza shop will be mostly empty all day, just like it has been for weeks. A few customers dine at two tables in the corner. The rest of the restaurant, much like the town it’s in, is deserted.
+### Short 2: Stock market today: S&P 500, Nasdaq hit pause after tech rout with Micron in focus - Yahoo Finance
+**Hook:** Did you hear about this? Stock market today: S&P 500, Nasdaq hit pause afte...
+**Body:** Investors are braced for Micron earnings for clues to whether AI optimism has overrun.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: U.S. issues sweeping Iran oil sanctions waivers, unlocking billions in revenue for Tehran - CNBC
-**Hook:** Did you hear about this? U.S. issues sweeping Iran oil sanctions waivers, u...
-**Body:** The U.S. issued a sweeping rollback of sanctions on Iranian oil, offering Tehran an economic lifeline as negotiations toward a peace deal proceed.
+### Short 3: Prime Day is here: We found 65+ deals to shop from Apple, Lego, Sony, and more - Mashable
+**Hook:** Did you hear about this? Prime Day is here: We found 65+ deals to shop from...
+**Body:** Amazon devices, Kindle bundles, headphones, and portable power stations are highlights.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
