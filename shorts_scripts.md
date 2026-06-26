@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: As Ebola cases hit 1,000, almost 3 million children and adolescents face rising risks in eastern DR Congo - Unicef
-**Hook:** Did you hear about this? As Ebola cases hit 1,000, almost 3 million childre...
-**Body:** Ebola has left over 130 children orphaned in Ituri, driving urgent need for protection and care
+### Short 1: We found 301+ Prime Day deals worth buying after reviewing thousands of offers - NBC News
+**Hook:** Did you hear about this? We found 301+ Prime Day deals worth buying after r...
+**Body:** We’re tracking Amazon Prime Day deals live on day 3 and updating our list with editor-approved discounts. Shop tech, beauty, kitchen and more before sales end.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Stock market today: S&P 500, Nasdaq hit pause after tech rout with Micron in focus - Yahoo Finance
-**Hook:** Did you hear about this? Stock market today: S&P 500, Nasdaq hit pause afte...
-**Body:** Investors are braced for Micron earnings for clues to whether AI optimism has overrun.
+### Short 2: Stock Market Today: Micron Earnings Spark Tech Rebound - WSJ
+**Hook:** Did you hear about this? Stock Market Today: Micron Earnings Spark Tech Reb...
+**Body:** Live updates on markets and the top finance, economics and business stories. Plus the latest on oil prices, the Dow, S&P 500 and Nasdaq.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Prime Day is here: We found 65+ deals to shop from Apple, Lego, Sony, and more - Mashable
-**Hook:** Did you hear about this? Prime Day is here: We found 65+ deals to shop from...
-**Body:** Amazon devices, Kindle bundles, headphones, and portable power stations are highlights.
+### Short 3: 4 surprising things to know about abortion in America since Dobbs - NPR
+**Hook:** Did you hear about this? 4 surprising things to know about abortion in Amer...
+**Body:** A confusing patchwork of state laws began to take shape hours after the Supreme Court ruled to overturn <em>Roe v. Wade</em> on June 24, 2022. Here's where things stand now on the abortion issue.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
