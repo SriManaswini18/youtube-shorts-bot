@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: We found 301+ Prime Day deals worth buying after reviewing thousands of offers - NBC News
-**Hook:** Did you hear about this? We found 301+ Prime Day deals worth buying after r...
-**Body:** We’re tracking Amazon Prime Day deals live on day 3 and updating our list with editor-approved discounts. Shop tech, beauty, kitchen and more before sales end.
+### Short 1: Best 150 Prime Day Deals Under $50 on Ninja, Anker and Samsung - CNET
+**Hook:** Did you hear about this? Best 150 Prime Day Deals Under $50 on Ninja, Anker...
+**Body:** Don't let the price tags fool you. These are some of the best value deals you can grab on the last day of the sale.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Stock Market Today: Micron Earnings Spark Tech Rebound - WSJ
-**Hook:** Did you hear about this? Stock Market Today: Micron Earnings Spark Tech Reb...
-**Body:** Live updates on markets and the top finance, economics and business stories. Plus the latest on oil prices, the Dow, S&P 500 and Nasdaq.
+### Short 2: Korean Stocks Slump 6% as Chipmakers Hit by Renewed Selloff - Bloomberg.com
+**Hook:** Did you hear about this? Korean Stocks Slump 6% as Chipmakers Hit by Renewe...
+**Body:** South Korean stocks went from euphoria to anxiety in a gut-wrenching week that exposed just how fragile the AI rally has become.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: 4 surprising things to know about abortion in America since Dobbs - NPR
-**Hook:** Did you hear about this? 4 surprising things to know about abortion in Amer...
-**Body:** A confusing patchwork of state laws began to take shape hours after the Supreme Court ruled to overturn <em>Roe v. Wade</em> on June 24, 2022. Here's where things stand now on the abortion issue.
+### Short 3: California voters to consider ballot measure to increase taxes on billionaires - Fox Business
+**Hook:** Did you hear about this? California voters to consider ballot measure to in...
+**Body:** California voters will decide on a ballot measure imposing a one-time 5% tax on billionaires, despite opposition from Gov. Gavin Newsom.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
