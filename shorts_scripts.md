@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: U.S.-Iran Latest: Iranian drones target Bahrain after U.S. strikes Iran; Trump accuses Tehran of ceasefire violation - CBS News
-**Hook:** Did you hear about this? U.S.-Iran Latest: Iranian drones target Bahrain af...
-**Body:** The U.S. carried out retaliatory strikes against Iran on Friday after Iranian forces hit a cargo vessel in the Strait of Hormuz a day earlier.
+### Short 1: NASA prepares to launch daring rescue to save aging telescope from falling to Earth - CBS News
+**Hook:** Did you hear about this? NASA prepares to launch daring rescue to save agin...
+**Body:** The $30 million salvage operation gets underway as soon as this week with the planned launch of a robotic lifesaver.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: After ousting Bill Cassidy, Donald Trump faces fresh test of his sway with GOP voters in Louisiana’s Senate runoff - CNN
-**Hook:** Did you hear about this? After ousting Bill Cassidy, Donald Trump faces fre...
-**Body:** Louisiana Republican voters already rejected an incumbent senator who was crossways with President Donald Trump. In a primary runoff on Saturday, they’ll decide whether to follow Trump’s lead in choosing a new nominee.
+### Short 2: Iran attacks Bahrain and Kuwait following US strikes and threatens to halt talks to end the war - AP News
+**Hook:** Did you hear about this? Iran attacks Bahrain and Kuwait following US strik...
+**Body:** Iran has again launched drone and missile attacks on Bahrain and Kuwait in response to new U.S. airstrikes. Iran’s Revolutionary Guard claimed responsibility for the attacks that targeted Gulf states hosting U.S. military bases. Iran now threatens a “complete…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: If a Lyme disease vaccine gets approved, how would it go over? We asked hunters - NPR
-**Hook:** Did you hear about this? If a Lyme disease vaccine gets approved, how would...
-**Body:** Drugmakers are working on a potential new shot to prevent the tick-borne illness. How might it fare in the era of vaccine skepticism?
+### Short 3: Here are the at-home medical items nurses swear by - The Washington Post
+**Hook:** Did you hear about this? Here are the at-home medical items nurses swear by...
+**Body:** These health professionals rely on Vicks VapoRub, Benadryl, aloe vera gel and many other products to treat common ailments.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
