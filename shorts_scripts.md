@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Column | What a gastroenterologist wants you to know about bidets - The Washington Post
-**Hook:** Did you hear about this? Column | What a gastroenterologist wants you to kn...
-**Body:** I’ve received so many questions from people who are bidet-curious but not yet bidet-ready.
+### Short 1: Stein/Fischer’s Latest: Kawhi, Raptors, Brown, Westbrook, More - HoopsRumors.com
+**Hook:** Did you hear about this? Stein/Fischer’s Latest: Kawhi, Raptors, Brown, Wes...
+**Body:** The Raptors reportedly have "momentum" on a Kawhi Leonard trade, plus many more rumors ahead of free agency.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Comcast Announces Plans to Separate Media and Technology Businesses into Two Leading Public Companies - Comcast Corporation
-**Hook:** Did you hear about this? Comcast Announces Plans to Separate Media and Tech...
-**Body:** Creation of Independent Comcast and NBCUniversal Positions Both Companies for Enhanced Strategic Focus, Agility and Value Creation
+### Short 2: Trump is using a $500M no-bid contract to build his White House ballroom - The Washington Post
+**Hook:** Did you hear about this? Trump is using a $500M no-bid contract to build hi...
+**Body:** The White House routed a $500 million no-bid contract through a White House office that typically handles repairs and furnishings and is exempt from competitive bidding requirements.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Scotland was the 'murder capital of Europe'. Then it started treating violence like a disease - BBC
-**Hook:** Did you hear about this? Scotland was the 'murder capital of Europe'. Then ...
-**Body:** In the early 2000s you were more three times more likely to be assaulted in Scotland than in the US, but the country now ranks among some of the safest in the world.
+### Short 3: US Supreme Court to rule on birthright citizenship and trans athletes - BBC
+**Hook:** Did you hear about this? US Supreme Court to rule on birthright citizenship...
+**Body:** The two highly anticipated rulings are core agenda items for President Donald Trump.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
