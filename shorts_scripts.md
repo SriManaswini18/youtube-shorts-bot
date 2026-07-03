@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: The largest digital camera ever built begins decade-long survey of the universe - AP News
-**Hook:** Did you hear about this? The largest digital camera ever built begins decad...
-**Body:** The largest digital camera ever built is beginning to capture images of unseen corners of the universe in finer detail. The Vera C. Rubin Observatory has officially begun its decade-long cosmic survey. Perched on a Chilean mountaintop, the telescope will poin…
+### Short 1: 4 surprising (and evidence-based) health benefits of drinking coffee - The Washington Post
+**Hook:** Did you hear about this? 4 surprising (and evidence-based) health benefits ...
+**Body:** Hundreds of studies have shown that a cup of joe — or more! — every day may protect against some major diseases.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Melissa Gilbert Cautions Child Actors’ Parents After Daveigh Chase’s Death - Vulture
-**Hook:** Did you hear about this? Melissa Gilbert Cautions Child Actors’ Parents Aft...
-**Body:** None
+### Short 2: Russian attacks kills at least 17, injures scores in Kyiv after Zelenskyy warned of ‘massive strike’ - NBC News
+**Hook:** Did you hear about this? Russian attacks kills at least 17, injures scores ...
+**Body:** Russia launched a large-scale attack on Ukraine’s capital overnight into Thursday that killed at least 18 people and injured scores as loud explosions shook Kyiv for hours.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Taylor Swift Wedding NDA Details Leak After Report She Cut Out an Attendee Who ‘Can’t Be Trusted’ - Yahoo
-**Hook:** Did you hear about this? Taylor Swift Wedding NDA Details Leak After Report...
-**Body:** None
+### Short 3: Vatican declares Society of St. Pius X in schism, excommunicates bishops and invalidates sacraments - AP News
+**Hook:** Did you hear about this? Vatican declares Society of St. Pius X in schism, ...
+**Body:** The Vatican has responded aggressively to a traditionalist society that consecrated bishops without the pope’s consent. The Vatican on Thursday declared the Society of St. Pius X in schism, excommunicating its bishops and warning its faithful. The Vatican’s d…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
