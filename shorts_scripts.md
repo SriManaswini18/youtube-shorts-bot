@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Record heat, crowds drive offseason boom in international travel - CNBC
-**Hook:** Did you hear about this? Record heat, crowds drive offseason boom in intern...
-**Body:** Airlines are extending flight schedules to maximize on lucrative international travel.
+### Short 1: Taylor Swift and Travis Kelce's wedding leaks snowball as guests reveal inside details - Fox News
+**Hook:** Did you hear about this? Taylor Swift and Travis Kelce's wedding leaks snow...
+**Body:** From the performances to the bouquet catch, guests keep spilling details from Taylor Swift and Travis Kelce's Madison Square Garden celebration.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: U.S. lead scorer Folarin Balogun's red card suspension lifted after Trump called FIFA president, sources say - CBS News
-**Hook:** Did you hear about this? U.S. lead scorer Folarin Balogun's red card suspen...
-**Body:** Balogun's reinstatement came after President Trump called FIFA President Gianni Infantino last week to ask whether the organization was going to review the situation, sources told CBS News.
+### Short 2: Stock market today: S&P 500, Nasdaq futures slip after Samsung results spark chip sell-off - Yahoo Finance UK
+**Hook:** Did you hear about this? Stock market today: S&P 500, Nasdaq futures slip a...
+**Body:** US stock futures edged down on the heels of a record-setting day on Wall Street.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: The European Union Is Splintering—and Some Say That’s the Only Way to Revive It - WSJ
-**Hook:** Did you hear about this? The European Union Is Splintering—and Some Say Tha...
-**Body:** None
+### Short 3: Tanker set ablaze after being struck by projectile in the Strait of Hormuz as Iran mourns Khamenei - AP News
+**Hook:** Did you hear about this? Tanker set ablaze after being struck by projectile...
+**Body:** A tanker traveling off the coast of Oman in the Strait of Hormuz has caught on fire after being struck by a projectile. The United Kingdom Maritime Trade Operations center said Tuesday that the tanker had been hit near Limah, Oman, in the strait. It said the …
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
