@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: The actors of ‘The Pitt’ own the Emmy acting categories with 13 nominated cast members - AP News
-**Hook:** Did you hear about this? The actors of ‘The Pitt’ own the Emmy acting categ...
-**Body:** The cast of “The Pitt” has had an epic day at the Emmy nominations, with 13 of them getting acting nods. The show highlights the roles of doctors, nurses, and patients in a small emergency department. In its first year, its cast was nominated for and won thre…
+### Short 1: CDC Investigates Parasite Outbreak Causing ‘Explosive Diarrhea’ as More Than 1,200 People Are Sickened - Allrecipes
+**Hook:** Did you hear about this? CDC Investigates Parasite Outbreak Causing ‘Explos...
+**Body:** The CDC is investigating a multistate cyclosporiasis outbreak linked to contaminated food or water, with nearly 1,000 cases reported in Michigan alone. Here’s what we know.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Egypt complains officials were biased in World Cup loss to Argentina - NPR
-**Hook:** Did you hear about this? Egypt complains officials were biased in World Cup...
-**Body:** The Egyptian Football Association (EFA) said Wednesday it "cannot remain silent" after what it believes was unfair and biased officiating in Egypt's 3-2 round of 16 loss against Argentina on Tuesday.
+### Short 2: South Korea’s SK Hynix raises $26.5bn in record-breaking US IPO - Al Jazeera
+**Hook:** Did you hear about this? South Korea’s SK Hynix raises $26.5bn in record-br...
+**Body:** South Korean chip giant makes largest-ever debut by a foreign firm in the US, eclipsing Alibaba’s 2014 IPO.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Trump flies partway home from Turkey in an old Air Force One - NPR
-**Hook:** Did you hear about this? Trump flies partway home from Turkey in an old Air...
-**Body:** President Trump flew partway home from a NATO summit on an old Air Force One plane instead of the new Qatari-gifted plane, a surprise swap that came as the U.S. and Iran began trading strikes again.
+### Short 3: Ariana Grande Look-Alike Paige Niemann Says She Felt 'Misled' by Star's DM - TMZ
+**Hook:** Did you hear about this? Ariana Grande Look-Alike Paige Niemann Says She Fe...
+**Body:** Ariana Grande's viral look-alike Paige Niemann says she felt "misled" by the direct message the popstar sent her amid her rise to online fame years ago.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
