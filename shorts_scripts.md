@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Lindsey Graham, longtime senator from South Carolina, dies at 71 - The Washington Post
-**Hook:** Did you hear about this? Lindsey Graham, longtime senator from South Caroli...
-**Body:** Graham, a staunch Trump ally and key GOP foreign policy voice, was running for reelection this year. He died of a “brief and sudden illness,” his office said.
+### Short 1: Sam Neill, actor known for ‘Jurassic Park,’ dies at 78 - NBC News
+**Hook:** Did you hear about this? Sam Neill, actor known for ‘Jurassic Park,’ dies a...
+**Body:** Sam Neill, the genre-spanning New Zealand actor best known for his starring role in the “Jurassic Park” movies, has died, his family said Monday.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Survivors of Iranian attack that killed 6 U.S. troops say generals ignored warnings - The Washington Post
-**Hook:** Did you hear about this? Survivors of Iranian attack that killed 6 U.S. tro...
-**Body:** The drone strike on Port Shuaiba in Kuwait occurred on day two of the war. Those who were there say they fear no one will be held accountable.
+### Short 2: Oil prices jump and world shares are mixed as US and Iran carry out airstrikes - AP News
+**Hook:** Did you hear about this? Oil prices jump and world shares are mixed as US a...
+**Body:** Oil prices have jumped and world shares are mixed after the U.S. carried out airstrikes and Iran retaliated. The prices of Brent crude and U.S. benchmark crude gained more than 2% early Monday. South Korea's Kospi sank 9%. On Friday, U.S. stocks rose as Wall …
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Key moments from former Qatar Emir Sheikh Hamad bin Khalifa Al Thani’s life - Al Jazeera
-**Hook:** Did you hear about this? Key moments from former Qatar Emir Sheikh Hamad bi...
-**Body:** Sheikh Hamad’s 18-year rule catapulted Qatar to prosperity and reshaped its domestic, regional and global footprint.
+### Short 3: 'Once it's gone, it's gone': How to future-proof your hearing - BBC
+**Hook:** Did you hear about this? 'Once it's gone, it's gone': How to future-proof y...
+**Body:** It's not just rocket launches and death metal concerts that lead to hearing loss. Many everyday activities can cause damage. Here's what you can do to protect your ears.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
