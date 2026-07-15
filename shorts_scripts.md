@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Sam Neill, actor known for ‘Jurassic Park,’ dies at 78 - NBC News
-**Hook:** Did you hear about this? Sam Neill, actor known for ‘Jurassic Park,’ dies a...
-**Body:** Sam Neill, the genre-spanning New Zealand actor best known for his starring role in the “Jurassic Park” movies, has died, his family said Monday.
+### Short 1: JPMorgan notches the highest quarterly profit in US banking history - Yahoo Finance
+**Hook:** Did you hear about this? JPMorgan notches the highest quarterly profit in U...
+**Body:** The nation's biggest bank announced another bang up quarter.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Oil prices jump and world shares are mixed as US and Iran carry out airstrikes - AP News
-**Hook:** Did you hear about this? Oil prices jump and world shares are mixed as US a...
-**Body:** Oil prices have jumped and world shares are mixed after the U.S. carried out airstrikes and Iran retaliated. The prices of Brent crude and U.S. benchmark crude gained more than 2% early Monday. South Korea's Kospi sank 9%. On Friday, U.S. stocks rose as Wall …
+### Short 2: Mathematics formula found on Maya wall rivals insights of ancient masters - Nature
+**Hook:** Did you hear about this? Mathematics formula found on Maya wall rivals insi...
+**Body:** Mathematical texts from a Maya site in Guatemala identify an astronomer called Sak Tahn Waax.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: 'Once it's gone, it's gone': How to future-proof your hearing - BBC
-**Hook:** Did you hear about this? 'Once it's gone, it's gone': How to future-proof y...
-**Body:** It's not just rocket launches and death metal concerts that lead to hearing loss. Many everyday activities can cause damage. Here's what you can do to protect your ears.
+### Short 3: IBM shares skid more than 20% after company warns second-quarter earnings fell short of expectations - CNBC
+**Hook:** Did you hear about this? IBM shares skid more than 20% after company warns ...
+**Body:** CEO blamed the shortfall on weakness in the software and infrastructure business because clients shifted money toward hardware purchases.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
