@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: JPMorgan notches the highest quarterly profit in US banking history - Yahoo Finance
-**Hook:** Did you hear about this? JPMorgan notches the highest quarterly profit in U...
-**Body:** The nation's biggest bank announced another bang up quarter.
+### Short 1: FIFA World Cup schedule today: Games, kickoff times, livestream info for July 15 - Mashable
+**Hook:** Did you hear about this? FIFA World Cup schedule today: Games, kickoff time...
+**Body:** There's one spot in the final left to claim.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Mathematics formula found on Maya wall rivals insights of ancient masters - Nature
-**Hook:** Did you hear about this? Mathematics formula found on Maya wall rivals insi...
-**Body:** Mathematical texts from a Maya site in Guatemala identify an astronomer called Sak Tahn Waax.
+### Short 2: Mass. won't see as many Cyclospora cases as Midwest, Tufts doc says - WCVB
+**Hook:** Did you hear about this? Mass. won't see as many Cyclospora cases as Midwes...
+**Body:** Eighteen cases of cyclosporiasis have been reported in Massachusetts between May 1 and July 1, adding to a rise in the outbreak that is spreading across most of the midwestern United States.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: IBM shares skid more than 20% after company warns second-quarter earnings fell short of expectations - CNBC
-**Hook:** Did you hear about this? IBM shares skid more than 20% after company warns ...
-**Body:** CEO blamed the shortfall on weakness in the software and infrastructure business because clients shifted money toward hardware purchases.
+### Short 3: Samsung confirms new foldables will be revealed July 22 with new Flex Titanium display tech - Mashable
+**Hook:** Did you hear about this? Samsung confirms new foldables will be revealed Ju...
+**Body:** Ahead of Galaxy Unpacked, Samsung is pulling back the curtains on a new foldable phone feature that will debut at the event.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
