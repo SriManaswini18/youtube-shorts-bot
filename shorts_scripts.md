@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: US launches new strikes as Iran says civilian infrastructure hit - BBC
-**Hook:** Did you hear about this? US launches new strikes as Iran says civilian infr...
-**Body:** Tehran says the US strikes hit bridges, while the US boards a ship in the Strait of Hormuz.
+### Short 1: Laos says it can't determine cause of tourist deaths linked to methanol - BBC
+**Hook:** Did you hear about this? Laos says it can't determine cause of tourist deat...
+**Body:** Officials say they have no evidence of poisoning over the 2024 deaths because autopsies were not conducted.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Japan revises law to ensure supply of (male) heirs to the imperial throne - NPR
-**Hook:** Did you hear about this? Japan revises law to ensure supply of (male) heirs...
-**Body:** A popular princess drives support for having a female Japanese Emperor. But the country's first female prime minister opposes it.
+### Short 2: 'RHOA' Alum Kim Zolciak Avoids Jail Time After Coughing Up Money in Nasty Divorce - TMZ
+**Hook:** Did you hear about this? 'RHOA' Alum Kim Zolciak Avoids Jail Time After Cou...
+**Body:** 'Real Housewives of Atlanta' alum Kim Zolciak is no longer at risk of being thrown behind bars ... 'cause she coughed up the money she owed to a court-appointed guardian in her bitter divorce ... TMZ has learned.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: A Pitt professor breaks down what to know about the diarrhea-causing cyclosporiasis - Pittsburgh Post-Gazette
-**Hook:** Did you hear about this? A Pitt professor breaks down what to know about th...
-**Body:** False
+### Short 3: Tuchel: England carry ‘scars’ of World Cup heartbreak into France playoff - Al Jazeera
+**Hook:** Did you hear about this? Tuchel: England carry ‘scars’ of World Cup heartbr...
+**Body:** England coach Thomas Tuchel says his side carry the pain of defeat into third-place playoff against France.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
