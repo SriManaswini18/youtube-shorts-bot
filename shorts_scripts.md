@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Laos says it can't determine cause of tourist deaths linked to methanol - BBC
-**Hook:** Did you hear about this? Laos says it can't determine cause of tourist deat...
-**Body:** Officials say they have no evidence of poisoning over the 2024 deaths because autopsies were not conducted.
+### Short 1: The biggest winners of the American economy fear they’re sinking fast - The Washington Post
+**Hook:** Did you hear about this? The biggest winners of the American economy fear t...
+**Body:** Waves of layoffs and growing pressure to automate jobs are creating existential panic in the tech industry. Economists say other white-collar workers are next.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: 'RHOA' Alum Kim Zolciak Avoids Jail Time After Coughing Up Money in Nasty Divorce - TMZ
-**Hook:** Did you hear about this? 'RHOA' Alum Kim Zolciak Avoids Jail Time After Cou...
-**Body:** 'Real Housewives of Atlanta' alum Kim Zolciak is no longer at risk of being thrown behind bars ... 'cause she coughed up the money she owed to a court-appointed guardian in her bitter divorce ... TMZ has learned.
+### Short 2: Tate brothers arrested in US as further UK charges take total to 59 - BBC
+**Hook:** Did you hear about this? Tate brothers arrested in US as further UK charges...
+**Body:** The Crown Prosecution Service says it has requested their extradition from the US, while their lawyer says they are innocent.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Tuchel: England carry ‘scars’ of World Cup heartbreak into France playoff - Al Jazeera
-**Hook:** Did you hear about this? Tuchel: England carry ‘scars’ of World Cup heartbr...
-**Body:** England coach Thomas Tuchel says his side carry the pain of defeat into third-place playoff against France.
+### Short 3: Two U.S. service members killed in Jordan and another is missing after Iranian strikes, military says - NBC News
+**Hook:** Did you hear about this? Two U.S. service members killed in Jordan and anot...
+**Body:** Two U.S. service members were killed Friday while defending against an Iranian ballistic missile and drone attack in Jordan, and another service member is missing, U.S.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
