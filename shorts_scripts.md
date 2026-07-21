@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: The biggest winners of the American economy fear they’re sinking fast - The Washington Post
-**Hook:** Did you hear about this? The biggest winners of the American economy fear t...
-**Body:** Waves of layoffs and growing pressure to automate jobs are creating existential panic in the tech industry. Economists say other white-collar workers are next.
+### Short 1: ‘King of the North’ Andy Burnham becomes 7th British prime minister in a decade - NBC News
+**Hook:** Did you hear about this? ‘King of the North’ Andy Burnham becomes 7th Briti...
+**Body:** The new Labour Party leader Andy Burnham is set to replace Keir Starmer as British prime minister, inheriting a country beset by low wages and internal strife.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Tate brothers arrested in US as further UK charges take total to 59 - BBC
-**Hook:** Did you hear about this? Tate brothers arrested in US as further UK charges...
-**Body:** The Crown Prosecution Service says it has requested their extradition from the US, while their lawyer says they are innocent.
+### Short 2: Taylor Farms lettuce sample that tested positive for cyclospora was a false positive, FDA says - CBS News
+**Hook:** Did you hear about this? Taylor Farms lettuce sample that tested positive f...
+**Body:** The FDA said that as of Sunday, it had not found any "confirmed positive sample results for product testing for Cyclospora."
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Two U.S. service members killed in Jordan and another is missing after Iranian strikes, military says - NBC News
-**Hook:** Did you hear about this? Two U.S. service members killed in Jordan and anot...
-**Body:** Two U.S. service members were killed Friday while defending against an Iranian ballistic missile and drone attack in Jordan, and another service member is missing, U.S.
+### Short 3: A teen spotted a rare pair of birds in D.C. Then came another surprise. - The Washington Post
+**Hook:** Did you hear about this? A teen spotted a rare pair of birds in D.C. Then c...
+**Body:** The Mississippi kites’ 50-foot-high nest has drawn a stream of awestruck observers.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
