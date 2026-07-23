@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Can I eat lettuce now? What to know about the cyclosporiasis outbreak. - The Washington Post
-**Hook:** Did you hear about this? Can I eat lettuce now? What to know about the cycl...
-**Body:** As investigators continue to study the outbreak and its possible sources, many people have questions about what's safe to eat. Here's the latest advice.
+### Short 1: Trump-backed candidates, 2020 election deniers, win Arizona primaries - NPR
+**Hook:** Did you hear about this? Trump-backed candidates, 2020 election deniers, wi...
+**Body:** The primaries set the field for what are expected to be heated contests for Congress and governor in a swing state this fall.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: His doctor’s prescription for his unbearable pain seemed absurd. It worked. - The Washington Post
-**Hook:** Did you hear about this? His doctor’s prescription for his unbearable pain ...
-**Body:** Gregory Maassen was nearly bedridden by a burning sensation that was later diagnosed as a rare form of neuropathy. He has found relief riding his e-bike across the country.
+### Short 2: Asia stocks erase early gains as oil surge weighs; Alphabet results ahead - Investing.com
+**Hook:** Did you hear about this? Asia stocks erase early gains as oil surge weighs;...
+**Body:** Asia stocks erase early gains as oil surge weighs; Alphabet results ahead
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: World shares mostly gain and South Korea and Japan recover some losses from AI stock sell-offs - AP News
-**Hook:** Did you hear about this? World shares mostly gain and South Korea and Japan...
-**Body:** World shares have mostly gained and U.S. futures advanced, with markets in South Korea and Japan trading higher after recent declines due to heavy selling of stocks linked to artificial intelligence. South Korea's benchmark Kospi ended 3.6% higher led by tech…
+### Short 3: US attacks Iran for 11th consecutive night - Al Jazeera
+**Hook:** Did you hear about this? US attacks Iran for 11th consecutive night - Al Ja...
+**Body:** Tehran launches retaliatory strikes on Kuwait, Bahrain and Jordan after US explosions reported across Iran.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
