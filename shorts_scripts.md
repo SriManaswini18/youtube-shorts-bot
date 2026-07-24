@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Trump-backed candidates, 2020 election deniers, win Arizona primaries - NPR
-**Hook:** Did you hear about this? Trump-backed candidates, 2020 election deniers, wi...
-**Body:** The primaries set the field for what are expected to be heated contests for Congress and governor in a swing state this fall.
+### Short 1: Trump's nuclear deal with Saudis jettisons longstanding US demands - BBC
+**Hook:** Did you hear about this? Trump's nuclear deal with Saudis jettisons longsta...
+**Body:** Past US presidents insisted that Saudi Arabia normalise relations with Israel in exchange for nuclear technology.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Asia stocks erase early gains as oil surge weighs; Alphabet results ahead - Investing.com
-**Hook:** Did you hear about this? Asia stocks erase early gains as oil surge weighs;...
-**Body:** Asia stocks erase early gains as oil surge weighs; Alphabet results ahead
+### Short 2: What To Watch Thursday: Big Bang Theory Spin-Off Debuts, Ransom Canyon And Strange New Worlds Return - TVLine
+**Hook:** Did you hear about this? What To Watch Thursday: Big Bang Theory Spin-Off D...
+**Body:** On TV this Thursday: The Big Bang Theory franchise enters the multiverse, Criminal Minds heads for hiatus, and Ransom Canyon and Strange New Worlds return.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: US attacks Iran for 11th consecutive night - Al Jazeera
-**Hook:** Did you hear about this? US attacks Iran for 11th consecutive night - Al Ja...
-**Body:** Tehran launches retaliatory strikes on Kuwait, Bahrain and Jordan after US explosions reported across Iran.
+### Short 3: DHS chief’s early missteps and an AI-generated version of ‘The Odyssey’: Morning Rundown - NBC News
+**Hook:** Did you hear about this? DHS chief’s early missteps and an AI-generated ver...
+**Body:** Tension is brewing between the White House and Homeland Security Secretary Markwayne Mullin, sources say.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
