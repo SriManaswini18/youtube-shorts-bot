@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: One killed, four wounded, after Palestinian steals gun, shoots hikers - The Jerusalem Post
-**Hook:** Did you hear about this? One killed, four wounded, after Palestinian steals...
-**Body:** The murdered Israeli was identified as 32-year-old Benayahu Melet, a member of Gilad Farm's emergency response squad, who was attempting to assist assailed hikers.
+### Short 1: India’s education minister resigns after weeks of student-led protests - AP News
+**Hook:** Did you hear about this? India’s education minister resigns after weeks of ...
+**Body:** India’s education minister Dharmendra Pradhan has resigned after weeks of protests over alleged exam leaks and irregularities in the education system. The move on Saturday marks the first major concession from Prime Minister Narendra Modi’s government. The Co…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Microsoft pressures LG into killing unwanted McAfee ads - The Verge
-**Hook:** Did you hear about this? Microsoft pressures LG into killing unwanted McAfe...
-**Body:** Microsoft has intervened to stop Windows 11 users with LG monitors from being bombarded with annoying McAfee trial pop-ups.
+### Short 2: Americans rewire their grocery shopping routines while digesting the biggest price jump in 50 years - AP News
+**Hook:** Did you hear about this? Americans rewire their grocery shopping routines w...
+**Body:** Living through the biggest jump in grocery prices in a half-century has many Americans changing their eating and food shopping habits. The price of food purchased for home use has increased 33% since the beginning of 2019. In the 7 1/2 before thatThe war in I…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: US hits dozens of countries with new wave of tariffs - BBC
-**Hook:** Did you hear about this? US hits dozens of countries with new wave of tarif...
-**Body:** Imposed citing forced labour concerns, the levies replace a temporary global duty brought in after the US Supreme Court struck down tariffs in February.
+### Short 3: What we learned from Friday practice at the 2026 F1 Hungarian GP - Autosport
+**Hook:** Did you hear about this? What we learned from Friday practice at the 2026 F...
+**Body:** Dust, wind, and bumps: track conditions at the Hungaroring were tough for even the best F1 drivers to tame. That's not to say there aren't clues as to how each team will perform at the Hungarian GP - as ever, we've crunched the numbers...
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
