@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: India’s education minister resigns after weeks of student-led protests - AP News
-**Hook:** Did you hear about this? India’s education minister resigns after weeks of ...
-**Body:** India’s education minister Dharmendra Pradhan has resigned after weeks of protests over alleged exam leaks and irregularities in the education system. The move on Saturday marks the first major concession from Prime Minister Narendra Modi’s government. The Co…
+### Short 1: Troy Jackson, unlike Graham Platner, is staying laser-focused on Susan Collins - Politico
+**Hook:** Did you hear about this? Troy Jackson, unlike Graham Platner, is staying la...
+**Body:** The Maine progressive former state senator is quickly trying to contrast himself with his GOP rival.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Americans rewire their grocery shopping routines while digesting the biggest price jump in 50 years - AP News
-**Hook:** Did you hear about this? Americans rewire their grocery shopping routines w...
-**Body:** Living through the biggest jump in grocery prices in a half-century has many Americans changing their eating and food shopping habits. The price of food purchased for home use has increased 33% since the beginning of 2019. In the 7 1/2 before thatThe war in I…
+### Short 2: Spacecraft brings Russians, American back to earth - CNN
+**Hook:** Did you hear about this? Spacecraft brings Russians, American back to earth...
+**Body:** A US-Russian space crew landed safely in the steppes of Kazakhstan on Sunday after an eight-month stint on the International Space Station.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: What we learned from Friday practice at the 2026 F1 Hungarian GP - Autosport
-**Hook:** Did you hear about this? What we learned from Friday practice at the 2026 F...
-**Body:** Dust, wind, and bumps: track conditions at the Hungaroring were tough for even the best F1 drivers to tame. That's not to say there aren't clues as to how each team will perform at the Hungarian GP - as ever, we've crunched the numbers...
+### Short 3: 4 things that can make you need more pain meds during surgery and after - The Washington Post
+**Hook:** Did you hear about this? 4 things that can make you need more pain meds dur...
+**Body:** Age, alcohol use and even hair color can all play a role in how much anesthesia and pain control you need.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
