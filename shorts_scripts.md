@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Troy Jackson, unlike Graham Platner, is staying laser-focused on Susan Collins - Politico
-**Hook:** Did you hear about this? Troy Jackson, unlike Graham Platner, is staying la...
-**Body:** The Maine progressive former state senator is quickly trying to contrast himself with his GOP rival.
+### Short 1: Column | I’m a doctor. Here’s why I wear sunblock indoors. - The Washington Post
+**Hook:** Did you hear about this? Column | I’m a doctor. Here’s why I wear sunblock ...
+**Body:** Plus, four tips for buying an effective sunscreen.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Spacecraft brings Russians, American back to earth - CNN
-**Hook:** Did you hear about this? Spacecraft brings Russians, American back to earth...
-**Body:** A US-Russian space crew landed safely in the steppes of Kazakhstan on Sunday after an eight-month stint on the International Space Station.
+### Short 2: Georgia Gov. Brian Kemp isn’t done with EVs - Politico
+**Hook:** Did you hear about this? Georgia Gov. Brian Kemp isn’t done with EVs - Poli...
+**Body:** The term-limited Republican has embraced artificial intelligence data centers, but he said electric vehicles continue to be a major priority for his last six months in office.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: 4 things that can make you need more pain meds during surgery and after - The Washington Post
-**Hook:** Did you hear about this? 4 things that can make you need more pain meds dur...
-**Body:** Age, alcohol use and even hair color can all play a role in how much anesthesia and pain control you need.
+### Short 3: 'Top Chef' Eric Adjepong Allegedly Violated Ex-Wife's Restraining Order Before Daughter's Protective Order - TMZ
+**Hook:** Did you hear about this? 'Top Chef' Eric Adjepong Allegedly Violated Ex-Wif...
+**Body:** "Top Chef" star Eric Adjepong allegedly violated a restraining order against his ex-wife, Janell Mack, more than a year before his daughter obtained a protective order against him ... TMZ has learned.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
