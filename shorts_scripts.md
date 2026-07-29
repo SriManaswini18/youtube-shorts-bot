@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Column | I’m a doctor. Here’s why I wear sunblock indoors. - The Washington Post
-**Hook:** Did you hear about this? Column | I’m a doctor. Here’s why I wear sunblock ...
-**Body:** Plus, four tips for buying an effective sunscreen.
+### Short 1: A magnitude 7.1 earthquake shakes part of southern Japan but no tsunami detected - AP News
+**Hook:** Did you hear about this? A magnitude 7.1 earthquake shakes part of southern...
+**Body:** An earthquake with a magnitude of 7.1 has shaken Kumamoto on Japan’s Kyushu island. The Japan Meteorological Agency issued a tsunami advisory for the Ariake and Yatsushiro Seas but it was lifted within two hours. Prime Minister Sanae Takaichi has urged reside…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Georgia Gov. Brian Kemp isn’t done with EVs - Politico
-**Hook:** Did you hear about this? Georgia Gov. Brian Kemp isn’t done with EVs - Poli...
-**Body:** The term-limited Republican has embraced artificial intelligence data centers, but he said electric vehicles continue to be a major priority for his last six months in office.
+### Short 2: Seattle pays tribute to festival shooting victims - BBC
+**Hook:** Did you hear about this? Seattle pays tribute to festival shooting victims ...
+**Body:** Families grieved on Monday as they remembered the three people killed in a shooting at a food festival.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: 'Top Chef' Eric Adjepong Allegedly Violated Ex-Wife's Restraining Order Before Daughter's Protective Order - TMZ
-**Hook:** Did you hear about this? 'Top Chef' Eric Adjepong Allegedly Violated Ex-Wif...
-**Body:** "Top Chef" star Eric Adjepong allegedly violated a restraining order against his ex-wife, Janell Mack, more than a year before his daughter obtained a protective order against him ... TMZ has learned.
+### Short 3: Boeing posts bigger loss than expected as Air Force One costs weigh on results - CNBC
+**Hook:** Did you hear about this? Boeing posts bigger loss than expected as Air Forc...
+**Body:** Boeing took a $280 million charge on its long-delayed Air Force One program.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
