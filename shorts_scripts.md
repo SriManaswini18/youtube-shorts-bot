@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: A magnitude 7.1 earthquake shakes part of southern Japan but no tsunami detected - AP News
-**Hook:** Did you hear about this? A magnitude 7.1 earthquake shakes part of southern...
-**Body:** An earthquake with a magnitude of 7.1 has shaken Kumamoto on Japan’s Kyushu island. The Japan Meteorological Agency issued a tsunami advisory for the Ariake and Yatsushiro Seas but it was lifted within two hours. Prime Minister Sanae Takaichi has urged reside…
+### Short 1: Inside the deal to clinch Lindsey Graham’s ‘sanctions bill from hell’ - The Washington Post
+**Hook:** Did you hear about this? Inside the deal to clinch Lindsey Graham’s ‘sancti...
+**Body:** The late senator pushed for a bipartisan financial bill that could curb Russia’s main source of income.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Seattle pays tribute to festival shooting victims - BBC
-**Hook:** Did you hear about this? Seattle pays tribute to festival shooting victims ...
-**Body:** Families grieved on Monday as they remembered the three people killed in a shooting at a food festival.
+### Short 2: Marjorie Taylor Greene Ties the Knot With Brian Glenn in Las Vegas - TMZ
+**Hook:** Did you hear about this? Marjorie Taylor Greene Ties the Knot With Brian Gl...
+**Body:** Marjorie Taylor Greene is now officially off the market ... because she just got hitched to her fiancé Brian Glenn in Las Vegas!
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Boeing posts bigger loss than expected as Air Force One costs weigh on results - CNBC
-**Hook:** Did you hear about this? Boeing posts bigger loss than expected as Air Forc...
-**Body:** Boeing took a $280 million charge on its long-delayed Air Force One program.
+### Short 3: Live updates: US and Iranian forces resume attacks in Middle East, piercing relative calm - CNN
+**Hook:** Did you hear about this? Live updates: US and Iranian forces resume attacks...
+**Body:** A few days of relative calm in the Middle East came to an end as the US military intercepted a “surprise attack” by Iran, according to US Central Command. Follow along for live updates.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
