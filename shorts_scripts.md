@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Tankers Are Being Blown Out of the Water. See How Mideast Strikes Are Piling Up. - WSJ
-**Hook:** Did you hear about this? Tankers Are Being Blown Out of the Water. See How ...
-**Body:** None
+### Short 1: U.S., Israel preparing to bombard energy-related targets in Iran, sources say - CBS News
+**Hook:** Did you hear about this? U.S., Israel preparing to bombard energy-related t...
+**Body:** The U.S. and Israel plan to hit Iran's energy infrastructure as soon as this weekend, although no final decision has been made, sources familiar with the matter told CBS News.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: FIFA defiant over World Cup investment plan, despite UEFA’s vote to boycott - aljazeera.com
-**Hook:** Did you hear about this? FIFA defiant over World Cup investment plan, despi...
-**Body:** European football’s governing body has voted to boycott FIFA if World Cup plans pursued, but global body undeterred.
+### Short 2: Mountaineer Nirmal Purja killed in Pakistan avalanche, his company says - BBC
+**Hook:** Did you hear about this? Mountaineer Nirmal Purja killed in Pakistan avalan...
+**Body:** The Nepali-born climber was known for scaling the world's 14 highest peaks in just over six months in 2019.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Nasdaq futures rise as Wall Street rebounds; South Korea's Kospi soars 15%: Live updates - cnbc.com
-**Hook:** Did you hear about this? Nasdaq futures rise as Wall Street rebounds; South...
-**Body:** The after-hours moves followed a powerful rally during Thursday's regular session, led by Microsoft.
+### Short 3: No one knew why she fainted so often. A clinical trial gave her hope. - The Washington Post
+**Hook:** Did you hear about this? No one knew why she fainted so often. A clinical t...
+**Body:** Her symptoms looked like panic attacks, and epilepsy medication made her sick. Finding an answer took years.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
