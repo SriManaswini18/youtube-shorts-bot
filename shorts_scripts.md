@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Several people killed in shooting at In-N-Out restaurant in Twin Falls, Idaho, officials say - CBS News
-**Hook:** Did you hear about this? Several people killed in shooting at In-N-Out rest...
-**Body:** Several people were killed in a shooting Saturday afternoon at an In-N-Out restaurant in Twin Falls, Idaho, local authorities said.
+### Short 1: Washington state wildfires force 60,000 people to evacuate homes - BBC
+**Hook:** Did you hear about this? Washington state wildfires force 60,000 people to ...
+**Body:** Videos from Spokane - the second most populus city in Washington - show huge plumes of smoke and roaring fires close to nearby houses.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Trump says he is cancelling strikes on Iran subject to deal being made 'rapidly' - BBC
-**Hook:** Did you hear about this? Trump says he is cancelling strikes on Iran subjec...
-**Body:** The US president claims Iran and other Middle Eastern countries asked Washington to hold off on any attack as the "perimeters" of a deal had been agreed.
+### Short 2: Clowney chose to return to Houston over chasing money: 'It was a really easy decision' - NFL.com
+**Hook:** Did you hear about this? Clowney chose to return to Houston over chasing mo...
+**Body:** Pass rusher Jadeveon Clowney decided to return to the Houston Texans, the club that picked him No. 1 overall in 2014.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: What's behind the $4B cut in federal funding for California's high-speed rail? - CBS News
-**Hook:** Did you hear about this? What's behind the $4B cut in federal funding for C...
-**Body:** Records reveal California twice missed deadlines to buy the trains at the center of a federal funding fight — then quietly dropped its lawsuit weeks after missing its new deadline.
+### Short 3: Ariana Grande withdraws from a London musical and will take a break from the public eye - AP News
+**Hook:** Did you hear about this? Ariana Grande withdraws from a London musical and ...
+**Body:** Ariana Grande has pulled out of an upcoming stage musical in London. Producers announced she plans to take a break from the public eye after her current tour finishes. Grande was set to star alongside Jonathan Bailey in “Sunday in the Park with George” at the…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
