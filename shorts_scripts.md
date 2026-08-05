@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Washington state wildfires force 60,000 people to evacuate homes - BBC
-**Hook:** Did you hear about this? Washington state wildfires force 60,000 people to ...
-**Body:** Videos from Spokane - the second most populus city in Washington - show huge plumes of smoke and roaring fires close to nearby houses.
+### Short 1: What is Trump Media's Truth API and why is it controversial? - BBC
+**Hook:** Did you hear about this? What is Trump Media's Truth API and why is it cont...
+**Body:** Trump Media & Technology Group (TMTG) has set up a paid service to give Wall Street firms access to Truth Social's most influential accounts.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Clowney chose to return to Houston over chasing money: 'It was a really easy decision' - NFL.com
-**Hook:** Did you hear about this? Clowney chose to return to Houston over chasing mo...
-**Body:** Pass rusher Jadeveon Clowney decided to return to the Houston Texans, the club that picked him No. 1 overall in 2014.
+### Short 2: Soldier kills four in gun rampage in Russian-occupied Crimea - BBC
+**Hook:** Did you hear about this? Soldier kills four in gun rampage in Russian-occup...
+**Body:** The region's Moscow-installed governor says the gunman has been detained after firing at fellow soldiers and civilians.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Ariana Grande withdraws from a London musical and will take a break from the public eye - AP News
-**Hook:** Did you hear about this? Ariana Grande withdraws from a London musical and ...
-**Body:** Ariana Grande has pulled out of an upcoming stage musical in London. Producers announced she plans to take a break from the public eye after her current tour finishes. Grande was set to star alongside Jonathan Bailey in “Sunday in the Park with George” at the…
+### Short 3: Live updates: Arson arrest made in connection to Washington wildfire as officials race to contain flames - CNN
+**Hook:** Did you hear about this? Live updates: Arson arrest made in connection to W...
+**Body:** A man was charged with arson in connection to one of three destructive wildfires burning in Spokane County. Hundreds of structures have been destroyed and at least 60,000 people evacuated as crews battle three  wildfires in the county. Follow for live news up…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
