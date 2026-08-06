@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: What is Trump Media's Truth API and why is it controversial? - BBC
-**Hook:** Did you hear about this? What is Trump Media's Truth API and why is it cont...
-**Body:** Trump Media & Technology Group (TMTG) has set up a paid service to give Wall Street firms access to Truth Social's most influential accounts.
+### Short 1: Perez Hilton hospitalized after reports he livestreamed self-harm, sheriff’s officials say - NBC News
+**Hook:** Did you hear about this? Perez Hilton hospitalized after reports he livestr...
+**Body:** The blogger recently returned to his native Miami after living in Las Vegas.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Soldier kills four in gun rampage in Russian-occupied Crimea - BBC
-**Hook:** Did you hear about this? Soldier kills four in gun rampage in Russian-occup...
-**Body:** The region's Moscow-installed governor says the gunman has been detained after firing at fellow soldiers and civilians.
+### Short 2: Stock Market Today: Dow Futures Tick Up, SpaceX Stock Slides After Earnings — Live Updates - WSJ
+**Hook:** Did you hear about this? Stock Market Today: Dow Futures Tick Up, SpaceX St...
+**Body:** None
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Live updates: Arson arrest made in connection to Washington wildfire as officials race to contain flames - CNN
-**Hook:** Did you hear about this? Live updates: Arson arrest made in connection to W...
-**Body:** A man was charged with arson in connection to one of three destructive wildfires burning in Spokane County. Hundreds of structures have been destroyed and at least 60,000 people evacuated as crews battle three  wildfires in the county. Follow for live news up…
+### Short 3: Court records detail troubled past of Spokane fire suspect - NBC News
+**Hook:** Did you hear about this? Court records detail troubled past of Spokane fire...
+**Body:** Aaron Farinacci, 37, served a decade in prison for killing his adoptive father in 2010.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
