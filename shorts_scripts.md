@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Perez Hilton hospitalized after reports he livestreamed self-harm, sheriff’s officials say - NBC News
-**Hook:** Did you hear about this? Perez Hilton hospitalized after reports he livestr...
-**Body:** The blogger recently returned to his native Miami after living in Las Vegas.
+### Short 1: Gann Fire: Man arrested near site of where wildfire sparked, says he did not mean to start it - KCRA
+**Hook:** Did you hear about this? Gann Fire: Man arrested near site of where wildfir...
+**Body:** A man was taken into custody near the site of a Calaveras County wildfire that has burned homes, forced evacuations and burned thousands of acres. He claims it was all an accident.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Stock Market Today: Dow Futures Tick Up, SpaceX Stock Slides After Earnings — Live Updates - WSJ
-**Hook:** Did you hear about this? Stock Market Today: Dow Futures Tick Up, SpaceX St...
+### Short 2: Drone with explosives found at German airport, official sees 'new quality' of threat - npr.org
+**Hook:** Did you hear about this? Drone with explosives found at German airport, off...
+**Body:** Regional police and prosecutors said an airport employee discovered a drone near the airport's south runway with "an unknown explosive device," and the object was examined by police
+**CTA:** Like if you're surprised by this! #shorts
+
+---
+
+### Short 3: Horoscope for Thursday, August 06, 2026 - Chicago Sun-Times
+**Hook:** Did you hear about this? Horoscope for Thursday, August 06, 2026 - Chicago ...
 **Body:** None
-**CTA:** Like if you're surprised by this! #shorts
-
----
-
-### Short 3: Court records detail troubled past of Spokane fire suspect - NBC News
-**Hook:** Did you hear about this? Court records detail troubled past of Spokane fire...
-**Body:** Aaron Farinacci, 37, served a decade in prison for killing his adoptive father in 2010.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
