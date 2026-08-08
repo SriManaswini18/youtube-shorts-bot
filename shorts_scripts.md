@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Gann Fire: Man arrested near site of where wildfire sparked, says he did not mean to start it - KCRA
-**Hook:** Did you hear about this? Gann Fire: Man arrested near site of where wildfir...
-**Body:** A man was taken into custody near the site of a Calaveras County wildfire that has burned homes, forced evacuations and burned thousands of acres. He claims it was all an accident.
+### Short 1: Toni Braxton Resolves 6-Figure Tax Debt Years After Bankruptcy - TMZ
+**Hook:** Did you hear about this? Toni Braxton Resolves 6-Figure Tax Debt Years Afte...
+**Body:** Toni Braxton says she dropped some serious dough to settle a debt with the IRS … over a decade after she finalized her second bankruptcy.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Drone with explosives found at German airport, official sees 'new quality' of threat - npr.org
-**Hook:** Did you hear about this? Drone with explosives found at German airport, off...
-**Body:** Regional police and prosecutors said an airport employee discovered a drone near the airport's south runway with "an unknown explosive device," and the object was examined by police
+### Short 2: Gann Fire updates: Body recovered, State of Emergency declared, firefighter injured in Calaveras County - KCRA
+**Hook:** Did you hear about this? Gann Fire updates: Body recovered, State of Emerge...
+**Body:** As crews continue to gain control over the Gann Fire in Calaveras County, officials said Thursday that they recovered a body from a burned home.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Horoscope for Thursday, August 06, 2026 - Chicago Sun-Times
-**Hook:** Did you hear about this? Horoscope for Thursday, August 06, 2026 - Chicago ...
-**Body:** None
+### Short 3: China’s exports jump almost a quarter in July - ft.com
+**Hook:** Did you hear about this? China’s exports jump almost a quarter in July - ft...
+**Body:** Trade remains resilient in world’s second-largest economy on soaring demand for high-tech goods
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
