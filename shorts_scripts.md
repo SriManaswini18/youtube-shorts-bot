@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Toni Braxton Resolves 6-Figure Tax Debt Years After Bankruptcy - TMZ
-**Hook:** Did you hear about this? Toni Braxton Resolves 6-Figure Tax Debt Years Afte...
-**Body:** Toni Braxton says she dropped some serious dough to settle a debt with the IRS … over a decade after she finalized her second bankruptcy.
+### Short 1: Senate confirms Todd Blanche as attorney general after weeks of uncertainty - NBC News
+**Hook:** Did you hear about this? Senate confirms Todd Blanche as attorney general a...
+**Body:** After weeks of uncertainty, Todd Blanche was confirmed as U.S. attorney general early Saturday in a mostly party-line vote.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Gann Fire updates: Body recovered, State of Emergency declared, firefighter injured in Calaveras County - KCRA
-**Hook:** Did you hear about this? Gann Fire updates: Body recovered, State of Emerge...
-**Body:** As crews continue to gain control over the Gann Fire in Calaveras County, officials said Thursday that they recovered a body from a burned home.
+### Short 2: Student kills at least 7 people at a high school and a home outside Bangkok, officials say - AP News
+**Hook:** Did you hear about this? Student kills at least 7 people at a high school a...
+**Body:** A student shot several people at a high school outside Bangkok, killing at least five and wounding several others. Deputy Interior Minister Polapee Suwunchwee says five school staff members died on Friday. The shooter earlier killed his two grandparents at ho…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: China’s exports jump almost a quarter in July - ft.com
-**Hook:** Did you hear about this? China’s exports jump almost a quarter in July - ft...
-**Body:** Trade remains resilient in world’s second-largest economy on soaring demand for high-tech goods
+### Short 3: 'Menace II Society' Star Samuel Monroe Jr. May End Up In Vegetative State, Tough Choice Looms - TMZ
+**Hook:** Did you hear about this? 'Menace II Society' Star Samuel Monroe Jr. May End...
+**Body:** Samuel Monroe Jr. remains hospitalized in Los Angeles on life support, in a medically induced coma ... and it's getting more apparent there may be no light at the end of the tunnel, his family tells TMZ.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
