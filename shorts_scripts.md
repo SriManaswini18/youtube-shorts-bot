@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Powerball jackpot nears $1 billion after no one won $905 million grand prize - Yahoo
-**Hook:** Did you hear about this? Powerball jackpot nears $1 billion after no one wo...
-**Body:** No winning tickets were sold for Monday night's $905 million Powerball jackpot, so the estimated grand prize for Wednesday night's drawing will be at least $975 million, Powerball says.
+### Short 1: Live updates: Democrats Francesca Hong and David Crowley locked in tight race for Wisconsin governor - CNN
+**Hook:** Did you hear about this? Live updates: Democrats Francesca Hong and David C...
+**Body:** Wisconsin state Assemblymember Francesca Hong, a democratic socialist, is locked in a tight contest for the Democratic nomination for governor against David Crowley, the establishment-backed Milwaukee County executive. Follow our live updates.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: First ever Pixel 11 Pro XL hands-on leak shows one of the phone's standout features, and I can't wait to see it live - PhoneArena
-**Hook:** Did you hear about this? First ever Pixel 11 Pro XL hands-on leak shows one...
-**Body:** None
+### Short 2: A whisper from the rubble led to baby’s rescue after Colombia earthquake - CNN
+**Hook:** Did you hear about this? A whisper from the rubble led to baby’s rescue aft...
+**Body:** A baby was pulled alive from the rubble of the massive Colombia earthquake, as search and rescue operations enter a third day.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Progressives could score a huge Wisconsin win Tuesday. Some national figures don’t want to touch it. - Politico
-**Hook:** Did you hear about this? Progressives could score a huge Wisconsin win Tues...
-**Body:** Francesca Hong hasn’t drawn big name backers like Bernie Sanders and Alexandria Ocasio-Cortez to her gubernatorial campaign, unlike other candidates this cycle.
+### Short 3: Mike Lindell Fails To Win Republican Nomination For Minnesota Governor - Forbes
+**Hook:** Did you hear about this? Mike Lindell Fails To Win Republican Nomination Fo...
+**Body:** Walz announced he would not seek reelection in the wake of a massive social service and welfare fraud scandal in Minnesota.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
