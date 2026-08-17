@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Jason Arday, ex-Cambridge professor accused of plagiarism, found dead week after resigning - NBC News
-**Hook:** Did you hear about this? Jason Arday, ex-Cambridge professor accused of pla...
-**Body:** Former Cambridge professor Jason Arday was found dead at his London home on Friday, one week after he resigned from his position after accusations of plagiarism.
+### Short 1: At least one killed as Hurricane Lala slams Hawaiian Islands with violent flash flooding, sweeping homes away - FOX Weather
+**Hook:** Did you hear about this? At least one killed as Hurricane Lala slams Hawaii...
+**Body:** Hurricane Lala continues its path northwest past the Hawaiian Islands as a Category 1 hurricane, unleashing a rare and dangerous impact on the state as it continues its track northwest along the western side of the Big Island, bringing damaging winds and heav…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Da'Vine Joy Randolph Sues Landlord Over Alleged $17K a Month Rental From Hell - TMZ
-**Hook:** Did you hear about this? Da'Vine Joy Randolph Sues Landlord Over Alleged $1...
-**Body:** Da’Vine Joy Randolph is dragging her landlord to court … claiming she rented a luxury home for $17K a month … only to have to deal with pests and plumbing issues ... TMZ has learned.
+### Short 2: US top Middle East commander visits deployed aircraft carrier, and other Mideast news - AP News
+**Hook:** Did you hear about this? US top Middle East commander visits deployed aircr...
+**Body:** Adm. Brad Cooper, the top U.S. military commander in the Middle East, has visited the USS Lincoln in the Arabian Sea. The aircraft carrier has been deployed for over 240 days, raising concerns about mental health and supply issues. Cooper's visit is part of a…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Exhausted health workers in Congo struggle to keep up as Ebola outpaces contact tracing - apnews.com
-**Hook:** Did you hear about this? Exhausted health workers in Congo struggle to keep...
-**Body:** Gédéon Banga Ngbape and his team of community health workers are laboring tirelessly in eastern Congo to track the country’s fastest-growing Ebola outbreak. They investigate alerts and try to get symptomatic individuals into care. However, the surveillance sy…
+### Short 3: Ukraine targets Moscow in mass drone attack as Russia bombards Kyiv - Al Jazeera
+**Hook:** Did you hear about this? Ukraine targets Moscow in mass drone attack as Rus...
+**Body:** Russian authorities report 201 Ukrainian drones downed overnight in the Moscow region in the escalating conflict.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
