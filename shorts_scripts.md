@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Zelenskyy faces challenge to his wartime rule as former defense chief calls for election - CNBC
-**Hook:** Did you hear about this? Zelenskyy faces challenge to his wartime rule as f...
-**Body:** Former Ukraine Defense Minister Mykhailo Fedorov has called for wartime elections, saying Kyiv must restore its democratic process despite the ongoing war.
+### Short 1: Prince Harry and Meghan will move back to the United Kingdom, source says - NBC News
+**Hook:** Did you hear about this? Prince Harry and Meghan will move back to the Unit...
+**Body:** The couple has lived in California since 2020. King Charles was informed of the move Sunday, a source said.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Chinese humanoid robot maker surges 600% in trading debut - Financial Times
-**Hook:** Did you hear about this? Chinese humanoid robot maker surges 600% in tradin...
-**Body:** Unitree makes stellar start in Shanghai as investors clamour for shares
+### Short 2: One killed when small plane, state police helicopter collide in Pennsylvania, officials say - CBS News
+**Hook:** Did you hear about this? One killed when small plane, state police helicopt...
+**Body:** One person was killed and two Pennsylvania State Police troopers were injured when a small plane and a state police helicopter collided in central Pennsylvania, authorities said.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Israel defends strike on Syria as U.S. frustration with Bibi grows - Axios
-**Hook:** Did you hear about this? Israel defends strike on Syria as U.S. frustration...
-**Body:** The unusual strike has exacerbated tensions in the region between three close U.S. partners.
+### Short 3: Stock Market Today: Bond Market Steady After Treasury Intervention, Nasdaq Futures Tick Up — Live Updates - WSJ
+**Hook:** Did you hear about this? Stock Market Today: Bond Market Steady After Treas...
+**Body:** None
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
