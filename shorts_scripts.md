@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Prince Harry and Meghan will move back to the United Kingdom, source says - NBC News
-**Hook:** Did you hear about this? Prince Harry and Meghan will move back to the Unit...
-**Body:** The couple has lived in California since 2020. King Charles was informed of the move Sunday, a source said.
+### Short 1: Asian Stocks Set to Fall as Bonds Resume Decline: Markets Wrap - Bloomberg.com
+**Hook:** Did you hear about this? Asian Stocks Set to Fall as Bonds Resume Decline: ...
+**Body:** Global stocks and bonds posted modest gains as oil prices broke a relentless run higher, offering respite from mounting worries about inflationary pressures.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: One killed when small plane, state police helicopter collide in Pennsylvania, officials say - CBS News
-**Hook:** Did you hear about this? One killed when small plane, state police helicopt...
-**Body:** One person was killed and two Pennsylvania State Police troopers were injured when a small plane and a state police helicopter collided in central Pennsylvania, authorities said.
+### Short 2: Hong Kong's Tiananmen activists convicted in national security trial - BBC
+**Hook:** Did you hear about this? Hong Kong's Tiananmen activists convicted in natio...
+**Body:** Three activists were accused of inciting others to subvert state power under the China-introduced law.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Stock Market Today: Bond Market Steady After Treasury Intervention, Nasdaq Futures Tick Up — Live Updates - WSJ
-**Hook:** Did you hear about this? Stock Market Today: Bond Market Steady After Treas...
-**Body:** None
+### Short 3: Jurors hear 'Keffe D' say his nephew fired fatal shots at Tupac Shakur in 1996 drive-by shooting - NPR
+**Hook:** Did you hear about this? Jurors hear 'Keffe D' say his nephew fired fatal s...
+**Body:** Jurors on Thursday heard Duane "Keffe D" Davis tell detectives in 2008 that his nephew Orlando "Baby Lane" Anderson fired the shots that killed Tupac Shakur.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
