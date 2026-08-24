@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Canadian prime minister suspends trade talks with U.S., setting new 50% tariffs in motion - NBC News
-**Hook:** Did you hear about this? Canadian prime minister suspends trade talks with ...
-**Body:** A new wave of tariffs will hit Canada early Saturday morning, with steep 50% duties in effect at the stroke of midnight.
+### Short 1: Jay Leno Wants New Hampshire to Recognize Wife's Conservatorship So He Can Sell Property - TMZ
+**Hook:** Did you hear about this? Jay Leno Wants New Hampshire to Recognize Wife's C...
+**Body:** Jay Leno wants courts in New Hampshire to recognize his wife's conservatorship in California so he can sell one of their New England properties ... TMZ has learned.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: China’s new moon mission could unlock secret of lunar ice: Why that matters - Al Jazeera
-**Hook:** Did you hear about this? China’s new moon mission could unlock secret of lu...
-**Body:** The Chang’e-7 seeks to find out more about the water trapped within the moon’s shadowed craters.
+### Short 2: Trump fires back at Canada after Carney suspends trade talks, accuses US of last-minute 'power play' - Fox Business
+**Hook:** Did you hear about this? Trump fires back at Canada after Carney suspends t...
+**Body:** President Donald Trump accused Canada of wanting the benefits of statehood on Truth Social after Canadian PM Mark Carney suspended U.S.-Canada trade negotiations over tariffs.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Will Howard’s two picks could jeopardize his roster spot in Pittsburgh - NBC Sports
-**Hook:** Did you hear about this? Will Howard’s two picks could jeopardize his roste...
-**Body:** Howard's rough night comes as decision time looms for the team's QB depth chart.
+### Short 3: 15-year-old arrested in deadly shooting at Independence High football game - KBAK
+**Hook:** Did you hear about this? 15-year-old arrested in deadly shooting at Indepen...
+**Body:** A 15-year-old boy was arrested on murder and gang-participation charges in the fatal shooting of a 17-year-old during an Independence High School football game,
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
