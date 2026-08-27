@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: SpaceX Starlink launch visible in NC skies Tuesday morning - WRAL
-**Hook:** Did you hear about this? SpaceX Starlink launch visible in NC skies Tuesday...
-**Body:** Early risers were able to watch as SpaceX launched from Cape Canaveral Tuesday morning.
+### Short 1: Flash flood on Nepal-Tibet border kills more than 150, with hundreds of tourists missing - BBC
+**Hook:** Did you hear about this? Flash flood on Nepal-Tibet border kills more than ...
+**Body:** Nepal's tourist board says the missing tourists include 133 from India, 54 from the US, and 33 from the UK, as well as more than 100 from Nepal itself.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Lunar eclipse 2026: Will weather block it in the U.S.? - The Weather Channel
-**Hook:** Did you hear about this? Lunar eclipse 2026: Will weather block it in the U...
-**Body:** Staying up for Thursday night's lunar eclipse? Here's an early look to see if skies will be clear, or if clouds may get in the way.
+### Short 2: Nvidia Earnings Live: Investors Brace for AI Chip Giant's Q2 Results - WSJ
+**Hook:** Did you hear about this? Nvidia Earnings Live: Investors Brace for AI Chip ...
+**Body:** Follow along live as WSJ reporters dive into Nvidia's latest earnings report, due out after markets close. Will the AI boom continue? Get news, analysis and the latest updates here.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Can Trump's economic war against Iran do what airstrikes and negotiations couldn't? - NPR
-**Hook:** Did you hear about this? Can Trump's economic war against Iran do what airs...
-**Body:** What a new round of U.S. sanctions could mean after nearly six months of war with Iran — and years of economic pressure on the country.
+### Short 3: Blake Lively Lawyer Reacts To Star Getting Just $400K In Baldoni Case Legal Fees - Deadline
+**Hook:** Did you hear about this? Blake Lively Lawyer Reacts To Star Getting Just $4...
+**Body:** Blake Lively may have received far less in legal fees than she hope for out of her long battle with Justin Baldoni, but a rebel Wilson case may prove to be the sequel so to speak
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
