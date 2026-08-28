@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Flash flood on Nepal-Tibet border kills more than 150, with hundreds of tourists missing - BBC
-**Hook:** Did you hear about this? Flash flood on Nepal-Tibet border kills more than ...
-**Body:** Nepal's tourist board says the missing tourists include 133 from India, 54 from the US, and 33 from the UK, as well as more than 100 from Nepal itself.
+### Short 1: Key moments from Lindsay Clancy's five-week trial over children's killings - BBC
+**Hook:** Did you hear about this? Key moments from Lindsay Clancy's five-week trial ...
+**Body:** A jury is deliberating in the trial of the Massachusetts mother charged with murdering her three small children
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Nvidia Earnings Live: Investors Brace for AI Chip Giant's Q2 Results - WSJ
-**Hook:** Did you hear about this? Nvidia Earnings Live: Investors Brace for AI Chip ...
-**Body:** Follow along live as WSJ reporters dive into Nvidia's latest earnings report, due out after markets close. Will the AI boom continue? Get news, analysis and the latest updates here.
+### Short 2: Stock Market Today: S&P 500 and Nasdaq are up in tech-fueled rally as Nvidia's stock jumps after its earnings beat expectations; Dow rises as Salesforce shares surge and Jackson Hole symposium gets started; Marvell Technology results on tap - MarketWatch
+**Hook:** Did you hear about this? Stock Market Today: S&P 500 and Nasdaq are up in t...
+**Body:** The S&P 500, Nasdaq and Dow were rising Thursday afternoon as tech rallied after earnings reports from Nvidia and Salesforce. Traders also were assessing the latest weekly jobless claims data while looking ahead to Fed Chair Warsh's Jackson Hole speech.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Blake Lively Lawyer Reacts To Star Getting Just $400K In Baldoni Case Legal Fees - Deadline
-**Hook:** Did you hear about this? Blake Lively Lawyer Reacts To Star Getting Just $4...
-**Body:** Blake Lively may have received far less in legal fees than she hope for out of her long battle with Justin Baldoni, but a rebel Wilson case may prove to be the sequel so to speak
+### Short 3: Largest ever ‘map’ of autism may hold clues for new targeted therapies - CNN
+**Hook:** Did you hear about this? Largest ever ‘map’ of autism may hold clues for ne...
+**Body:** Scientists are getting a step closer to understanding exactly how autism develops in the brain – and what might work to treat it.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
