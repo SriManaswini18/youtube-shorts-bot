@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Key moments from Lindsay Clancy's five-week trial over children's killings - BBC
-**Hook:** Did you hear about this? Key moments from Lindsay Clancy's five-week trial ...
-**Body:** A jury is deliberating in the trial of the Massachusetts mother charged with murdering her three small children
+### Short 1: Josh Shapiro is battling RFK Jr. over measles, and the politics are getting messy - The Washington Post
+**Hook:** Did you hear about this? Josh Shapiro is battling RFK Jr. over measles, and...
+**Body:** A county coroner said that the pathologist who examined a newborn who tested positive for measles did not believe the virus played a role in the baby’s death.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Stock Market Today: S&P 500 and Nasdaq are up in tech-fueled rally as Nvidia's stock jumps after its earnings beat expectations; Dow rises as Salesforce shares surge and Jackson Hole symposium gets started; Marvell Technology results on tap - MarketWatch
-**Hook:** Did you hear about this? Stock Market Today: S&P 500 and Nasdaq are up in t...
-**Body:** The S&P 500, Nasdaq and Dow were rising Thursday afternoon as tech rallied after earnings reports from Nvidia and Salesforce. Traders also were assessing the latest weekly jobless claims data while looking ahead to Fed Chair Warsh's Jackson Hole speech.
+### Short 2: Nepal-China flooding latest: Rescue efforts resume after newly formed lake threatens fresh deluge - CNN
+**Hook:** Did you hear about this? Nepal-China flooding latest: Rescue efforts resume...
+**Body:** Dozens of Americans and other foreign nationals are among at least 1,300 people unaccounted for. Follow for live updates.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Largest ever ‘map’ of autism may hold clues for new targeted therapies - CNN
-**Hook:** Did you hear about this? Largest ever ‘map’ of autism may hold clues for ne...
-**Body:** Scientists are getting a step closer to understanding exactly how autism develops in the brain – and what might work to treat it.
+### Short 3: Americans remain sour on Iran war and judge questions Kennedy Center renovations: Morning Rundown - NBC News
+**Hook:** Did you hear about this? Americans remain sour on Iran war and judge questi...
+**Body:** After six months of war, Americans remain sour on President Trump’s handling of the conflict.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
