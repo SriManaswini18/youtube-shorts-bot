@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: UFC Shanghai Results: Nurmagomedov vs. Song - MMA Fighting
-**Hook:** Did you hear about this? UFC Shanghai Results: Nurmagomedov vs. Song - MMA ...
-**Body:** Get UFC Shanghai results for the Nurmagomedov vs. Song event in Shanghai, China, on Saturday morning.
+### Short 1: Live updates: Rescuers search for missing workers as death toll rises from devastating China-Nepal floods - CNN
+**Hook:** Did you hear about this? Live updates: Rescuers search for missing workers ...
+**Body:** Survivors have returned to find little left of their communities as the death toll rises from last week’s catastrophic flooding at the China-Nepal border. Follow live updates.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Hollywood has an unlikely ally in its push to win over Trump - Politico
-**Hook:** Did you hear about this? Hollywood has an unlikely ally in its push to win ...
-**Body:** I tried to find Trump’s Hollywood ambassador at his regular deli. Jon Voight never showed — but his federal rescue mission may be gaining momentum.
+### Short 2: Colts WR Keenan Allen arrested on drunken driving charges - NFL.com
+**Hook:** Did you hear about this? Colts WR Keenan Allen arrested on drunken driving ...
+**Body:** Keenan Allen, 34, was being held at the Marion County Arrestee Processing Center after his Sunday arrest.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: A shotgun, a wrestler and a House race: Tennessee’s revolt against Flock cameras - NBC News
-**Hook:** Did you hear about this? A shotgun, a wrestler and a House race: Tennessee’...
-**Body:** As the debate around Flock cameras in East Tennessee was getting heated, a candidate running for Congress was arrested and accused of shooting four of them.
+### Short 3: ‘Coyote vs. Acme’ Snags No. 2 With $15.4M as ‘Spider-Man’ Nears ‘Avatar 2’; ‘Dog Stars’ Put to Sleep - The Hollywood Reporter
+**Hook:** Did you hear about this? ‘Coyote vs. Acme’ Snags No. 2 With $15.4M as ‘Spid...
+**Body:** Jacob Elordi's thriller from Ridley Scott settled for box office scraps, while Tom Holland's 'Brand New Day' topped 'Titanic' and 'Ne Zha 2' to hit No. 4 on the all-time global chart.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
