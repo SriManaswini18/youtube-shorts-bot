@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Trump said his deal with Venezuela would lower gas prices. Will it? - The Washington Post
-**Hook:** Did you hear about this? Trump said his deal with Venezuela would lower gas...
-**Body:** It is likely to be years before oil production meaningfully ramps up, industry experts say, and there are many risks involved.
+### Short 1: Top US doctors offer updated flu and COVID vaccine recommendations, aiming to ease confusion - AP News
+**Hook:** Did you hear about this? Top US doctors offer updated flu and COVID vaccine...
+**Body:** Leading U.S. medical groups are urging people to get updated flu and COVID-19 vaccinations this fall. They banded together to offer recommendations Wednesday, saying they hope to lessen confusion after last year's changing advice from the Trump administration…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Nvidia’s DLSS 5, explained - The Verge
-**Hook:** Did you hear about this? Nvidia’s DLSS 5, explained - The Verge...
-**Body:** Nvidia’s DLSS 5 is arriving on September 3rd in its first game. Here’s how the tech works, based on unofficial hands-on and an official briefing.
+### Short 2: Tiger Woods pleads no contest to reckless driving charge over rollover crash in Florida - AP News
+**Hook:** Did you hear about this? Tiger Woods pleads no contest to reckless driving ...
+**Body:** Tiger Woods has pleaded no contest to a reckless driving charge in Florida. Woods was arrested in March following a rollover crash near his home on Jupiter Island and was initially charged with driving under the influence. The golf legend appeared Wednesday i…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Tropical Storm Edouard could reach hurricane strength as it approaches Texas and Louisiana - AP News
-**Hook:** Did you hear about this? Tropical Storm Edouard could reach hurricane stren...
-**Body:** Lowell has become a hurricane in the Pacific and is forecast to further strengthen into a major hurricane. The storm’s maximum sustained winds Tuesday morning had increased to 80 mph. Hurricane Lowell was centered about 575 miles southeast of Hilo, Hawaii, an…
+### Short 3: Fed Chairman Warsh Lays Out His Own Data Dashboard for Reading the US Economy - Bloomberg.com
+**Hook:** Did you hear about this? Fed Chairman Warsh Lays Out His Own Data Dashboard...
+**Body:** Federal Reserve Chairman Kevin Warsh used his keynote speech in Jackson Hole, Wyoming, last week to map out some of the key data points he leans on to read the US economy, offering new insight into his approach to policy making.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
