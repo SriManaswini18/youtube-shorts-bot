@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Jobs report live updates: August jobs data expected to show labor market 'cooling, not cracking' - Yahoo Finance
-**Hook:** Did you hear about this? Jobs report live updates: August jobs data expecte...
-**Body:** The Labor Department will release the August jobs report on Friday, providing clues about the health of the labor market as hiring and firing remain broadly...
+### Short 1: Robert Pattinson Wants Chris Hansen to Like ‘Primetime’ Despite His Criticisms: ‘I Hope the Inspiration His Character Has Given Is Some Kind of Compliment’ - variety.com
+**Hook:** Did you hear about this? Robert Pattinson Wants Chris Hansen to Like ‘Prime...
+**Body:** Robert Pattinson talks about his role as 'To Catch a Predator' host Chris Hansen in the A24 crime thriller 'Primetime,' which premieres at Venice.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: US diesel prices hit a record high of $5.85 on average as the Iran war disrupts the flow of fuel - AP News
-**Hook:** Did you hear about this? US diesel prices hit a record high of $5.85 on ave...
-**Body:** Diesel has hit a new record price in the U.S., soaring to an average of $5.85 a gallon for the first time ever. The record comes as the six-month war with Iran disrupts the world’s flow of fuel. Because diesel is used for many freight and delivery networks, h…
+### Short 2: Her back hurt, then she couldn’t button her pants. The cause was alarming. - The Washington Post
+**Hook:** Did you hear about this? Her back hurt, then she couldn’t button her pants....
+**Body:** At first, doctors told her she didn’t have anything to worry about. But after treatment, her pain continued.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Nearly impossible? How Fairphone built the ethical, repairable Fairphone Gen 6+. - Ars Technica
-**Hook:** Did you hear about this? Nearly impossible? How Fairphone built the ethical...
-**Body:** Fairphone's CTO explains how and why the Dutch company builds a different kind of smartphone.
+### Short 3: Voters are fed up with data centers. Both parties are trying to cash in for midterms - NPR
+**Hook:** Did you hear about this? Voters are fed up with data centers. Both parties ...
+**Body:** Democrats and Republicans have found common ground in this campaign season. Both parties have poured millions into ads attacking data centers as the public continues to protest the AI facilities.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
