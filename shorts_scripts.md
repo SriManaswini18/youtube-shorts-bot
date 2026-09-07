@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Robert Pattinson Wants Chris Hansen to Like ‘Primetime’ Despite His Criticisms: ‘I Hope the Inspiration His Character Has Given Is Some Kind of Compliment’ - variety.com
-**Hook:** Did you hear about this? Robert Pattinson Wants Chris Hansen to Like ‘Prime...
-**Body:** Robert Pattinson talks about his role as 'To Catch a Predator' host Chris Hansen in the A24 crime thriller 'Primetime,' which premieres at Venice.
+### Short 1: Pennsylvania’s measles crisis: Inside the nation’s largest outbreak - Pittsburgh Post-Gazette
+**Hook:** Did you hear about this? Pennsylvania’s measles crisis: Inside the nation’s...
+**Body:** False
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Her back hurt, then she couldn’t button her pants. The cause was alarming. - The Washington Post
-**Hook:** Did you hear about this? Her back hurt, then she couldn’t button her pants....
-**Body:** At first, doctors told her she didn’t have anything to worry about. But after treatment, her pain continued.
+### Short 2: German far-right set for big win eastern state - exit polls - BBC
+**Hook:** Did you hear about this? German far-right set for big win eastern state - e...
+**Body:** Germany's AfD has hailed a "historic result" and is projected to win 44.5% of the vote, far ahead of the conservative CDU on 18.5%.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Voters are fed up with data centers. Both parties are trying to cash in for midterms - NPR
-**Hook:** Did you hear about this? Voters are fed up with data centers. Both parties ...
-**Body:** Democrats and Republicans have found common ground in this campaign season. Both parties have poured millions into ads attacking data centers as the public continues to protest the AI facilities.
+### Short 3: Lowell now a powerful Category 3 hurricane; some fluctuations in intensity possible through early Sunday - Big Island Now
+**Hook:** Did you hear about this? Lowell now a powerful Category 3 hurricane; some f...
+**Body:** None
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
