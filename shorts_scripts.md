@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: The 10 fastest-growing jobs in America over the next decade - Fox Business
-**Hook:** Did you hear about this? The 10 fastest-growing jobs in America over the ne...
-**Body:** The Bureau of Labor Statistics projects nurse practitioners as the fastest-growing job through 2035, with 41% growth amid rising healthcare demand.
+### Short 1: ‘Musk’: Alex Gibney Shares His Take on Elon Musk’s “Global Right-Wing Agenda” and the “Almost Existential Fear” of Talking He Encountered: Venice - The Hollywood Reporter
+**Hook:** Did you hear about this? ‘Musk’: Alex Gibney Shares His Take on Elon Musk’s...
+**Body:** Also at Venice, Ashley St. Clair discussed why she rejected a $40 million NDA and decided to take part in the doc, while tech journalist Zoë Schiffer said Musk augmented "more inflammatory comments" on X.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Germany's Merz shocked by far-right state election triumph but doubles down on unpopular reforms - AP News
-**Hook:** Did you hear about this? Germany's Merz shocked by far-right state election...
-**Body:** German Chancellor Friedrich Merz has doubled down on pushing through unpopular reforms to Europe’s largest economy after a far-right party surged to a landslide victory in a regional election, with a very good chance of forming the first far-right state gover…
+### Short 2: LG TVs caught spying even when offline or on standby - The Verge
+**Hook:** Did you hear about this? LG TVs caught spying even when offline or on stand...
+**Body:** Gamers Nexus gives you another reason to never connect your smart TV to the internet.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Federal investigators probe Amazon cargo jet’s fiery runway crash that killed 5 in Miami - AP News
-**Hook:** Did you hear about this? Federal investigators probe Amazon cargo jet’s fie...
-**Body:** Experts say federal investigators will likely consider whether an Amazon cargo jet that barreled off a runway and crashed into several vehicles in Miami touched down too late. The fiery crash killed five people and injured five more. The aircraft overran the …
+### Short 3: Instant grades for Christian Gonzalez contract extension with Patriots - Pats Pulpit
+**Hook:** Did you hear about this? Instant grades for Christian Gonzalez contract ext...
+**Body:** The Patriots are keeping their top cornerback on a new four-year extension.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
