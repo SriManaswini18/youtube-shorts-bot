@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Home sales fall in August despite the highest supply in over a decade - CNBC
-**Hook:** Did you hear about this? Home sales fall in August despite the highest supp...
-**Body:** Home sales slowed again despite the highest supply of homes for sale in over a decade. Prices, however, continue to rise.
+### Short 1: 5 movements physical therapists say every adult over 50 should do daily - The Washington Post
+**Hook:** Did you hear about this? 5 movements physical therapists say every adult ov...
+**Body:** These simple moves can help you maintain mobility and independence as you age.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Apple Watch Ultra 4 and Series 12 have surprise upgrade that wasn’t announced - 9to5Mac
-**Hook:** Did you hear about this? Apple Watch Ultra 4 and Series 12 have surprise up...
-**Body:** Apple Watch Series 12 and Apple Watch Ultra 4 are here, and new findings reveal they each have a surprise upgrade not mentioned by Apple.
+### Short 2: Trump to commemorate 25th anniversary of 9/11 attacks at the Pentagon - AP News
+**Hook:** Did you hear about this? Trump to commemorate 25th anniversary of 9/11 atta...
+**Body:** President Donald Trump is set to observe the 25th anniversary of the Sept. 11 attacks by attending a ceremony at the Pentagon. In a downpour at daybreak Friday, Defense Secretary Pete Hegseth and top military officials stood outside the Pentagon and watched a…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Harry Styles Announces Stadium Tour for 2027, Including Rose Bowl - Variety
-**Hook:** Did you hear about this? Harry Styles Announces Stadium Tour for 2027, Incl...
-**Body:** Harry Styles' stadium tour in 2027 will include venues like the Rose Bowl with openers including Kylie Minogue, Lainey Wilson and LCD Soundsystem.
+### Short 3: CPI report moments away: August inflation could tip the scales for a Fed rate hike — live updates - MarketWatch
+**Hook:** Did you hear about this? CPI report moments away: August inflation could ti...
+**Body:** Follow MarketWatch's live coverage of the consumer-price index report for August, and what it means for interest rates, the markets and your money. The report is scheduled for 8:30 a.m. eastern on Friday.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
