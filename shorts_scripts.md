@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: 5 movements physical therapists say every adult over 50 should do daily - The Washington Post
-**Hook:** Did you hear about this? 5 movements physical therapists say every adult ov...
-**Body:** These simple moves can help you maintain mobility and independence as you age.
+### Short 1: Republicans assess Trump’s convention with a shrug - Politico
+**Hook:** Did you hear about this? Republicans assess Trump’s convention with a shrug...
+**Body:** 'No harm done, but also doesn't change much of anything,' said one Republican strategist.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Trump to commemorate 25th anniversary of 9/11 attacks at the Pentagon - AP News
-**Hook:** Did you hear about this? Trump to commemorate 25th anniversary of 9/11 atta...
-**Body:** President Donald Trump is set to observe the 25th anniversary of the Sept. 11 attacks by attending a ceremony at the Pentagon. In a downpour at daybreak Friday, Defense Secretary Pete Hegseth and top military officials stood outside the Pentagon and watched a…
+### Short 2: Your health insurance bills are about to go up - NBC News
+**Hook:** Did you hear about this? Your health insurance bills are about to go up - N...
+**Body:** Most Americans can expect to pay significantly more each month for health insurance next year, whether they get it through work, Obamacare or Medicare.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: CPI report moments away: August inflation could tip the scales for a Fed rate hike — live updates - MarketWatch
-**Hook:** Did you hear about this? CPI report moments away: August inflation could ti...
-**Body:** Follow MarketWatch's live coverage of the consumer-price index report for August, and what it means for interest rates, the markets and your money. The report is scheduled for 8:30 a.m. eastern on Friday.
+### Short 3: Trump meets Ireland's leaders before heading to his golf club in Doonbeg - NPR
+**Hook:** Did you hear about this? Trump meets Ireland's leaders before heading to hi...
+**Body:** U.S. President Donald Trump has held talks in Dublin with Irish President Catherine Connolly and Ireland's Prime Minister Micheál Martin during a weekend visit centered on a major golf tournament.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
