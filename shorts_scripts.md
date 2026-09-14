@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Republicans assess Trump’s convention with a shrug - Politico
-**Hook:** Did you hear about this? Republicans assess Trump’s convention with a shrug...
-**Body:** 'No harm done, but also doesn't change much of anything,' said one Republican strategist.
+### Short 1: ‘Practical Magic 2’ Brews Up $46M WW In Global Opening - Deadline
+**Hook:** Did you hear about this? ‘Practical Magic 2’ Brews Up $46M WW In Global Ope...
+**Body:** Practical Magic 2 opened to a ho-hum $46M at the global box office, largely driven by domestic's $30M start.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Your health insurance bills are about to go up - NBC News
-**Hook:** Did you hear about this? Your health insurance bills are about to go up - N...
-**Body:** Most Americans can expect to pay significantly more each month for health insurance next year, whether they get it through work, Obamacare or Medicare.
+### Short 2: Myles Garrett will have knee surgery, head to IR - NBC Sports
+**Hook:** Did you hear about this? Myles Garrett will have knee surgery, head to IR -...
+**Body:** The dream team has encountered an unexpected detour.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Trump meets Ireland's leaders before heading to his golf club in Doonbeg - NPR
-**Hook:** Did you hear about this? Trump meets Ireland's leaders before heading to hi...
-**Body:** U.S. President Donald Trump has held talks in Dublin with Irish President Catherine Connolly and Ireland's Prime Minister Micheál Martin during a weekend visit centered on a major golf tournament.
+### Short 3: Trump brushes off AI doom predictions, says US must push ahead - New York Post
+**Hook:** Did you hear about this? Trump brushes off AI doom predictions, says US mus...
+**Body:** “I think you have a lot of negative voices that are bringing it up that shouldn’t be bringing it up, and they’re bringing up things that won’t happen.”
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
