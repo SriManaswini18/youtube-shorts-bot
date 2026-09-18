@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Americans are tired. Women and young adults, most of all. - The Washington Post
-**Hook:** Did you hear about this? Americans are tired. Women and young adults, most ...
-**Body:** A new CDC report shows that nearly 3 out of 4 adults reported feeling fatigued on at least some days in 2024.
+### Short 1: Week 2 NFL odds, picks, predictions: Computer model backs Seahawks and Buccaneers - CBS Sports
+**Hook:** Did you hear about this? Week 2 NFL odds, picks, predictions: Computer mode...
+**Body:** SportsLine's advanced model has simulated every game in the Week 2 NFL schedule 10,000 times and locked in its NFL best bets today
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Fed Meeting Today: Dow Futures Edge Up as Investors Await Warsh Rate Decision - WSJ
-**Hook:** Did you hear about this? Fed Meeting Today: Dow Futures Edge Up as Investor...
-**Body:** Live updates on markets and the top finance, economics and business stories. Plus the latest on today's Federal Reserve meeting, bonds, oil prices, the Dow, S&P 500 and Nasdaq.
+### Short 2: Steve Belichick resigns as North Carolina defensive coordinator - NBC Sports
+**Hook:** Did you hear about this? Steve Belichick resigns as North Carolina defensiv...
+**Body:** Bill Belichick's son steps down amid an ongoing investigation.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: The iPhone 18 Pro’s big camera update is all about the small gains - The Verge
-**Hook:** Did you hear about this? The iPhone 18 Pro’s big camera update is all about...
-**Body:** The iPhone 18 Pro comes with a major camera upgrade that adds up to small image quality improvements. But Apple’s Pro iPhone is just that bit better, yet again.
+### Short 3: Family sues Ken Paxton and doctors, claiming Texas abortion ban led to pregnant woman’s death - cnn.com
+**Hook:** Did you hear about this? Family sues Ken Paxton and doctors, claiming Texas...
+**Body:** The family of a Texas woman who died from a pregnancy-related condition ​has sued the state’s Republican attorney general, Ken Paxton, and doctors who treated her, claiming an abortion ‌could have saved her life and the state’s near-total ban on the procedure…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
