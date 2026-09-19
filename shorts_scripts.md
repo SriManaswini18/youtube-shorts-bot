@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Week 2 NFL odds, picks, predictions: Computer model backs Seahawks and Buccaneers - CBS Sports
-**Hook:** Did you hear about this? Week 2 NFL odds, picks, predictions: Computer mode...
-**Body:** SportsLine's advanced model has simulated every game in the Week 2 NFL schedule 10,000 times and locked in its NFL best bets today
+### Short 1: Why Democrats are starting to feel bullish about a midterm wave - The Washington Post
+**Hook:** Did you hear about this? Why Democrats are starting to feel bullish about a...
+**Body:** Democrats say the Iran war, high prices and President Donald Trump's sinking popularity give them a real chance of congressional majorities.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Steve Belichick resigns as North Carolina defensive coordinator - NBC Sports
-**Hook:** Did you hear about this? Steve Belichick resigns as North Carolina defensiv...
-**Body:** Bill Belichick's son steps down amid an ongoing investigation.
+### Short 2: How this common age-related eye disease leads to hallucinations - The Washington Post
+**Hook:** Did you hear about this? How this common age-related eye disease leads to h...
+**Body:** Studies suggest that Charles Bonnet syndrome affects roughly one in six people with retinal disease or significant vision loss.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Family sues Ken Paxton and doctors, claiming Texas abortion ban led to pregnant woman’s death - cnn.com
-**Hook:** Did you hear about this? Family sues Ken Paxton and doctors, claiming Texas...
-**Body:** The family of a Texas woman who died from a pregnancy-related condition ​has sued the state’s Republican attorney general, Ken Paxton, and doctors who treated her, claiming an abortion ‌could have saved her life and the state’s near-total ban on the procedure…
+### Short 3: MI5 accepts it gave evidence based on lies in neo-Nazi spy case - BBC
+**Hook:** Did you hear about this? MI5 accepts it gave evidence based on lies in neo-...
+**Body:** It is the first time MI5 has confirmed the BBC's revelation that it gave evidence based on lies in court while defending the violent informant.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
