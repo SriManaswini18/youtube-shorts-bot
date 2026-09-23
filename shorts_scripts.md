@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Cindy Crawford’s son, model Presley Gerber, dies at 27 - cnn.com
-**Hook:** Did you hear about this? Cindy Crawford’s son, model Presley Gerber, dies a...
-**Body:** The son of Cindy Crawford, Presley Gerber, has died at the age of 27, her representative confirmed to CNN.
+### Short 1: Live updates: Trump arrives at UN General Assembly - BBC
+**Hook:** Did you hear about this? Live updates: Trump arrives at UN General Assembly...
+**Body:** Later, the US president is due to meet UK PM Andy Burnham for the first time.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: The long dream of the Googlebook - The Verge
-**Hook:** Did you hear about this? The long dream of the Googlebook - The Verge...
-**Body:** By merging ChromeOS and Android, Google has found a new kind of laptop that it thinks can compete with Mac and Windows.
+### Short 2: Hayden Panettiere’s Cause of Death Revealed as Toxic Effects of Fentanyl and More; Death Ruled an Accident - variety.com
+**Hook:** Did you hear about this? Hayden Panettiere’s Cause of Death Revealed as Tox...
+**Body:** Hayden Panettiere's cause of death has been revealed after the "Heroes" and "Scream" star died at 36.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: ‘The Further Mis-Adventures of Cliff Booth’ Trailer: Brad Pitt Reprises His Oscar-Winning Role in David Fincher’s Tarantino Sequel - Variety
-**Hook:** Did you hear about this? ‘The Further Mis-Adventures of Cliff Booth’ Traile...
-**Body:** A trailer for “The Adventures of Cliff Booth” is giving audiences a look at Brad Pitt as the stuntman introduced in “Once Upon a Time in Hollywood.”
+### Short 3: PFT’s Week 3 2026 NFL power rankings - NBC Sports
+**Hook:** Did you hear about this? PFT’s Week 3 2026 NFL power rankings - NBC Sports...
+**Body:** The Seahawks continue to rule the roost.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
