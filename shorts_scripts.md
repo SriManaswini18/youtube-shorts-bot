@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Live updates: Trump arrives at UN General Assembly - BBC
-**Hook:** Did you hear about this? Live updates: Trump arrives at UN General Assembly...
-**Body:** Later, the US president is due to meet UK PM Andy Burnham for the first time.
+### Short 1: Powerful nor’easter could bring a rough weekend to the Northeast - The Washington Post
+**Hook:** Did you hear about this? Powerful nor’easter could bring a rough weekend to...
+**Body:** The forecast is trending toward a powerful, slow-moving and rare September nor’easter that tracks closer to the coast.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Hayden Panettiere’s Cause of Death Revealed as Toxic Effects of Fentanyl and More; Death Ruled an Accident - variety.com
-**Hook:** Did you hear about this? Hayden Panettiere’s Cause of Death Revealed as Tox...
-**Body:** Hayden Panettiere's cause of death has been revealed after the "Heroes" and "Scream" star died at 36.
+### Short 2: Americans are drinking less since the pandemic began, but one group bucks the trend - The Washington Post
+**Hook:** Did you hear about this? Americans are drinking less since the pandemic beg...
+**Body:** Studies previously found alcohol consumption and deaths surged during the pandemic as Americans grappled with stress and isolation.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: PFT’s Week 3 2026 NFL power rankings - NBC Sports
-**Hook:** Did you hear about this? PFT’s Week 3 2026 NFL power rankings - NBC Sports...
-**Body:** The Seahawks continue to rule the roost.
+### Short 3: 'Dancing with the Stars': Viral Hits Night ends with elimination, 1 chipped tooth - USA Today
+**Hook:** Did you hear about this? 'Dancing with the Stars': Viral Hits Night ends wi...
+**Body:** "Dancing with the Stars" celebrated Viral Hits Night on Sept. 22. See who got sent home on Week 2 and which "DWTS" pro suffered a chipped tooth.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
