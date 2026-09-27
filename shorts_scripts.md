@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Stock Market Today: Bond Selloff Abates as Oil Price Slips — Live Updates - wsj.com
-**Hook:** Did you hear about this? Stock Market Today: Bond Selloff Abates as Oil Pri...
-**Body:** None
+### Short 1: Presidents Cup: How to watch Saturday action in Chicago - PGA Tour
+**Hook:** Did you hear about this? Presidents Cup: How to watch Saturday action in Ch...
+**Body:** The Presidents Cup heads to the venerable Medinah Country Club with a hungry group of Internationals looking to defeat the American side for the first time on home soil. This marks the 16th playing of the Presidents Cup and another notable event hosted at Med…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Trump and Xi dined with AI's biggest names. Here's what we know about tech talks so far - CNBC
-**Hook:** Did you hear about this? Trump and Xi dined with AI's biggest names. Here's...
-**Body:** AI was a key topic during Trump-Xi talks on Thursday, after safety concerns shot to the top of the global geopolitical agenda in recent weeks.
+### Short 2: Angela Rayner criticises worker visa plans on eve of Labour conference - BBC
+**Hook:** Did you hear about this? Angela Rayner criticises worker visa plans on eve ...
+**Body:** The housing secretary says the government's plans to change wait times for permanent residency are unfair because they "change the goalposts".
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Some dementia patients grow lucid near the end. Scientists hope it’s a clue. - The Washington Post
-**Hook:** Did you hear about this? Some dementia patients grow lucid near the end. Sc...
-**Body:** Accounts raise tantalizing questions about what happens inside a brain afflicted by dementia and whether cognitive abilities could possibly be restored.
+### Short 3: She grew up under Soviet rule. Now EU's top diplomat warns Europe against giving Russia what it wants - Fox News
+**Hook:** Did you hear about this? She grew up under Soviet rule. Now EU's top diplom...
+**Body:** Kaja Kallas says Russia's sabotage and intimidation campaign aims to weaken European support for Ukraine, warning the strategy will escalate if it works.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
