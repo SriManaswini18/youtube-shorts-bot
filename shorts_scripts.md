@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Presidents Cup: How to watch Saturday action in Chicago - PGA Tour
-**Hook:** Did you hear about this? Presidents Cup: How to watch Saturday action in Ch...
-**Body:** The Presidents Cup heads to the venerable Medinah Country Club with a hungry group of Internationals looking to defeat the American side for the first time on home soil. This marks the 16th playing of the Presidents Cup and another notable event hosted at Med…
+### Short 1: Pope blasts assisted dying as 'false compassion' at French shrine known for miraculous cures - apnews.com
+**Hook:** Did you hear about this? Pope blasts assisted dying as 'false compassion' a...
+**Body:** Pope Leo XIV has criticized the legalization of medically assisted death as "false compassion" during his visit to Lourdes, France. Speaking to a crowd of 150,000, he emphasized the Catholic teaching that all human life should be protected. His visit comes am…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Angela Rayner criticises worker visa plans on eve of Labour conference - BBC
-**Hook:** Did you hear about this? Angela Rayner criticises worker visa plans on eve ...
-**Body:** The housing secretary says the government's plans to change wait times for permanent residency are unfair because they "change the goalposts".
+### Short 2: Box Office: ‘Avengers: Endgame Encore’ Returns to No. 1 With $26 Million, ‘Primetime’ Scores Impressive $19 Million Debut - Variety
+**Hook:** Did you hear about this? Box Office: ‘Avengers: Endgame Encore’ Returns to ...
+**Body:** "Avengers: Endgame Encore," a re-release of Marvel's 2019 blockbuster, emerged victorious at the box office over several new releases.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: She grew up under Soviet rule. Now EU's top diplomat warns Europe against giving Russia what it wants - Fox News
-**Hook:** Did you hear about this? She grew up under Soviet rule. Now EU's top diplom...
-**Body:** Kaja Kallas says Russia's sabotage and intimidation campaign aims to weaken European support for Ukraine, warning the strategy will escalate if it works.
+### Short 3: Live updates: Powerful nor’easter lashes East Coast with rain, flooding and wind - CNN
+**Hook:** Did you hear about this? Live updates: Powerful nor’easter lashes East Coas...
+**Body:** A strong, early season storm has delivered a weekend of wind, soaking rain and massive waves to the Northeast. Follow for the latest updates.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
