@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Pope blasts assisted dying as 'false compassion' at French shrine known for miraculous cures - apnews.com
-**Hook:** Did you hear about this? Pope blasts assisted dying as 'false compassion' a...
-**Body:** Pope Leo XIV has criticized the legalization of medically assisted death as "false compassion" during his visit to Lourdes, France. Speaking to a crowd of 150,000, he emphasized the Catholic teaching that all human life should be protected. His visit comes am…
+### Short 1: Live updates: SpaceX launches unprecedented test flight of massive Starship, aiming for orbit - CNN
+**Hook:** Did you hear about this? Live updates: SpaceX launches unprecedented test f...
+**Body:** SpaceX’s Starship rocket, the most powerful rocket ever made, has launched from Starbase, Texas. Follow for live updates.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Box Office: ‘Avengers: Endgame Encore’ Returns to No. 1 With $26 Million, ‘Primetime’ Scores Impressive $19 Million Debut - Variety
-**Hook:** Did you hear about this? Box Office: ‘Avengers: Endgame Encore’ Returns to ...
-**Body:** "Avengers: Endgame Encore," a re-release of Marvel's 2019 blockbuster, emerged victorious at the box office over several new releases.
+### Short 2: Florida officials warn of ‘wildly unusual’ disease outbreak, declare state of emergency - New York Post
+**Hook:** Did you hear about this? Florida officials warn of ‘wildly unusual’ disease...
+**Body:** Nearly 200 locally acquired cases have been reported and one death across several counties.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Live updates: Powerful nor’easter lashes East Coast with rain, flooding and wind - CNN
-**Hook:** Did you hear about this? Live updates: Powerful nor’easter lashes East Coas...
-**Body:** A strong, early season storm has delivered a weekend of wind, soaking rain and massive waves to the Northeast. Follow for the latest updates.
+### Short 3: MLB Wild Card Round odds: The favorites for every series - ESPN
+**Hook:** Did you hear about this? MLB Wild Card Round odds: The favorites for every ...
+**Body:** 2026 MLB playoffs: Wild Card Round schedule, lines and odds to win.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
