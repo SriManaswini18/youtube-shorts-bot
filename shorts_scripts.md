@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: New Aaron Judge Rumors, Updated Injury Status for Yankees vs. Rays in 2026 MLB Playoffs - Bleacher Report
-**Hook:** Did you hear about this? New Aaron Judge Rumors, Updated Injury Status for ...
-**Body:** The New York Yankees will be without Aaron Judge for their ALDS matchup with the Tampa Bay Rays.
+### Short 1: ‘Avengers: Endgame’ Returns to No. 1 on All-Time Global Box Office Chart, Surpassing ‘Avatar’ - The Hollywood Reporter
+**Hook:** Did you hear about this? ‘Avengers: Endgame’ Returns to No. 1 on All-Time G...
+**Body:** Marvel Studios' 2019 release headed back to theaters last weekend ahead of this year's 'Doomsday.'
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Stop the Steel? Iowa approves $1.36 billion for foreign-owned steel plant in swing district less than 2 weeks before early voting - CBS News
-**Hook:** Did you hear about this? Stop the Steel? Iowa approves $1.36 billion for fo...
-**Body:** President Trump said Monday that the largest steel plant in U.S. history will be built in Iowa. It touched off a week of debate.
+### Short 2: SNL takes aim at Trump’s Republican allies with cold open - The Washington Post
+**Hook:** Did you hear about this? SNL takes aim at Trump’s Republican allies with co...
+**Body:** Host Dakota Johnson also brought out her “literal therapist,” Taylor Swift.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Max Verstappen and Lewis Hamilton go viral after "wholesome" Sepang F1 moment - Motorsport.com
-**Hook:** Did you hear about this? Max Verstappen and Lewis Hamilton go viral after "...
-**Body:** A post-qualifying moment between Max Verstappen and Lewis Hamilton went viral after the pair secured the front row for the Bahrain GP in Malaysia
+### Short 3: Cornell president calls gang rape allegations ‘deeply disturbing’ - NPR
+**Hook:** Did you hear about this? Cornell president calls gang rape allegations ‘dee...
+**Body:** Cornell president Michael I. Kotlikoff said his university "must do better" in a video statement. "This is a defining moment in Cornell's history," he added.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
