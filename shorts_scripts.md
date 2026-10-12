@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Christa Pike discharged from hospital and returned to prison, her lawyers say - BBC
-**Hook:** Did you hear about this? Christa Pike discharged from hospital and returned...
-**Body:** Pike's lawyers say she is "grateful" to the medical team who cared for her after she survived two lethal injections last month.
+### Short 1: Six senators call for Trump administration to 'immediately reverse course' on Russian diesel plan - AP News
+**Hook:** Did you hear about this? Six senators call for Trump administration to 'imm...
+**Body:** A bipartisan group of six senators are calling on President Donald Trump’s administration to “immediately reverse course” on a plan to purchase diesel from Russia as part of an effort to lower high fuel prices. Four Republican senators and two Democratic sena…
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Trump fumes at ‘stain’ on Norway after missing out on Nobel Peace Prize - The Washington Post
-**Hook:** Did you hear about this? Trump fumes at ‘stain’ on Norway after missing out...
-**Body:** The president described the decision to award the Nobel Peace Prize to Navi Pillay as “disgraceful and embarrassing” and said he would “not forget.”
+### Short 2: Passenger terminal at Riyadh airport is struck again, a day after 12 were killed - AP News
+**Hook:** Did you hear about this? Passenger terminal at Riyadh airport is struck aga...
+**Body:** A projectile has struck a passenger terminal at the international airport in Riyadh, a day after a missile hit the same complex and killed 12 people. Sunday’s strike occurred as King Khalid International Airport remained closed. The Iran-backed Houthi rebels …
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: College football odds, picks, predictions for Week 6, 2026: Computer likes Nebraska, Arkansas - CBS Sports
-**Hook:** Did you hear about this? College football odds, picks, predictions for Week...
-**Body:** SportsLine's model has revealed its 2026 Week 6 college football picks for matchups such as Alabama vs. Georgia, Oregon vs. UCLA and Texas vs. Oklahoma
+### Short 3: Sirianni's call leads to dramatic winning kick by Jaguars' Little - ESPN
+**Hook:** Did you hear about this? Sirianni's call leads to dramatic winning kick by ...
+**Body:** Eagles coach Nick Sirianni took responsibility for his handling of the closing moments of Sunday's dramatic 19-17 loss to the Jaguars in London.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
