@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Pope Leo leaves hospital after lung cancer operation - The Washington Post
-**Hook:** Did you hear about this? Pope Leo leaves hospital after lung cancer operati...
-**Body:** The pope waved to the crowds as he left the hospital to return to the Vatican, appearing in public for the first time since his admission.
+### Short 1: ‘Heartbreaking day for Wichita’: Truck drives through soccer field, killing 2, injuring 10 - NewsNation
+**Hook:** Did you hear about this? ‘Heartbreaking day for Wichita’: Truck drives thro...
+**Body:** A 6-year-old boy and a 35-year-old man, both from McPherson, died from their injuries.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Melissa Gilbert reacts after sex abuse case dismissed against husband Timothy Busfield - USA Today
-**Hook:** Did you hear about this? Melissa Gilbert reacts after sex abuse case dismis...
+### Short 2: Major fire breaks out in Alberta after deadly incident at Canadian military base - NBC News
+**Hook:** Did you hear about this? Major fire breaks out in Alberta after deadly inci...
 **Body:** None
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Zelenskyy says Starlink speed limits in Ukraine are a ‘planned operation’ - Financial Times
-**Hook:** Did you hear about this? Zelenskyy says Starlink speed limits in Ukraine ar...
-**Body:** President says restrictions only apply in Ukraine and are hampering efforts to intercept Russian attacks
+### Short 3: Albanian PM says protests pose threat to EU membership, not government - Reuters
+**Hook:** Did you hear about this? Albanian PM says protests pose threat to EU member...
+**Body:** None
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
