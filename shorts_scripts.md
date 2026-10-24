@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Nasdaq tumbles on AI spending concerns and jump in oil prices: Live updates - CNBC
-**Hook:** Did you hear about this? Nasdaq tumbles on AI spending concerns and jump in...
-**Body:** U.S. equities slid on Thursday, bogged down by declines in mega-cap names Meta Platforms and Tesla as worries around the artificial intelligence trade increase.
+### Short 1: Stock futures remain under pressure amid AI trade worries, gain in oil above $100: Live updates - CNBC
+**Hook:** Did you hear about this? Stock futures remain under pressure amid AI trade ...
+**Body:** Stock futures edged down on Friday as oil traded higher.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Virginia State Senator L. Louise Lucas charged in public corruption case - NBC News
-**Hook:** Did you hear about this? Virginia State Senator L. Louise Lucas charged in ...
-**Body:** Virginia State Senator L. Louise Lucas charged in public corruption case, DOJ says
+### Short 2: Duchess Meghan "deeply distressed" as father Thomas Markle faces child sexual abuse materials investigation - CBS News
+**Hook:** Did you hear about this? Duchess Meghan "deeply distressed" as father Thoma...
+**Body:** Thomas Markle, the estranged father of Meghan, Duchess of Sussex, is facing a probe in the Philippines over alleged possession of child sexual abuse materials.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Ilhan Omar says 'bizarre' pre-dawn raid on her home is forcing her to leave - BBC
-**Hook:** Did you hear about this? Ilhan Omar says 'bizarre' pre-dawn raid on her hom...
-**Body:** The congresswoman said federal agents seized over a dozen items, including cell phones and notebooks, as part of a federal investigation.
+### Short 3: As Republicans brace for election losses, Musk prepares for war - The Washington Post
+**Hook:** Did you hear about this? As Republicans brace for election losses, Musk pre...
+**Body:** A host of Democrats have said they are eager to wield the power of their office to investigate the tech titan and his ventures should they win either chamber in the midterms.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
