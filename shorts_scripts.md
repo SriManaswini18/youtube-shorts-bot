@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Suspect arrested after fire "completely engulfed" Hitler's Eagle's Nest mountain retreat in Germany - CBS News
-**Hook:** Did you hear about this? Suspect arrested after fire "completely engulfed" ...
-**Body:** Police said firefighting efforts were hampered due to local conditions.
+### Short 1: You Can See Everything Box Office Huge Second Weekend, Clayface Leads - Variety
+**Hook:** Did you hear about this? You Can See Everything Box Office Huge Second Week...
+**Body:** "You Can See Everything" had another huge weekend at the box office as "Clayface" landed in first place.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Voters angry about high prices may get little relief from the next Congress - The Washington Post
-**Hook:** Did you hear about this? Voters angry about high prices may get little reli...
-**Body:** Even if Democrats win control of Congress on Nov. 3, lawmakers can do little about prices that are uncomfortably high -- and will stay that way even as the rate of inflation is expected to slow.
+### Short 2: Team A v Team B: How the players rated - BBC
+**Hook:** Did you hear about this? Team A v Team B: How the players rated - BBC...
+**Body:** Another catastrophic day for Manchester United and a glorious one for Bournemouth - how did the players rate?
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: The most important things to do to stay healthy while traveling - The Washington Post
-**Hook:** Did you hear about this? The most important things to do to stay healthy wh...
-**Body:** An infectious-diseases doctor shares essential tips to prepare for any health issues while traveling in another country.
+### Short 3: Blanche on Alaska suit: 'There could be a crime' - Politico
+**Hook:** Did you hear about this? Blanche on Alaska suit: 'There could be a crime' -...
+**Body:** The attorney general took part in at-times contentious interviews on both CNN and CBS.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
