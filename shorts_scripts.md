@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: 'Big Brother' winner Rick Devens reveals wife has cancer - USA Today
-**Hook:** Did you hear about this? 'Big Brother' winner Rick Devens reveals wife has ...
-**Body:** Weeks after winning "Big Brother," Rick Devens revealed his wife Becca has been diagnosed with breast cancer.
+### Short 1: Stock Market Today: Dow flat, Nasdaq and S&P 500 edge higher as oil prices fall and chip stocks bounce - MarketWatch
+**Hook:** Did you hear about this? Stock Market Today: Dow flat, Nasdaq and S&P 500 e...
+**Body:** Follow all the latest U.S. market action for Tuesday here.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Anthropic files for potentially the biggest IPO ever as CEO warns of risk to humanity from AI - AP News
-**Hook:** Did you hear about this? Anthropic files for potentially the biggest IPO ev...
-**Body:** Artificial intelligence giant Anthropic filed papers Monday for what could be the biggest initial public offering of stock ever even as its top executive warns that advanced AI could pose an existential threat to humanity. The filing sets up the San Francisco…
+### Short 2: Colorectal cancer is surging in an unexpected group — and it’s ‘developing differently’ - New York Post
+**Hook:** Did you hear about this? Colorectal cancer is surging in an unexpected grou...
+**Body:** Scientists are racing to understand why the disease is shifting to new populations — and why it’s appearing more aggressively.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Microsoft offers voluntary buyouts to 60,000 employees - CNBC
-**Hook:** Did you hear about this? Microsoft offers voluntary buyouts to 60,000 emplo...
-**Body:** Microsoft is trying to balance a rapid AI infrastructure build-out with capital efficiency.
+### Short 3: FBI serves search warrants tied to Eric Swalwell investigation at Beverly Hills mansion belonging to Stephen Cloobeck - ABC7 Los Angeles
+**Hook:** Did you hear about this? FBI serves search warrants tied to Eric Swalwell i...
+**Body:** The FBI served a search warrant at Beverly Hills mansion, and Eyewitness News has learned it's in connection to an investigation into Eric Swalwell.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
