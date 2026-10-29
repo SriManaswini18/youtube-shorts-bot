@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Stock Market Today: Dow flat, Nasdaq and S&P 500 edge higher as oil prices fall and chip stocks bounce - MarketWatch
-**Hook:** Did you hear about this? Stock Market Today: Dow flat, Nasdaq and S&P 500 e...
-**Body:** Follow all the latest U.S. market action for Tuesday here.
+### Short 1: Dolores Huerta, pioneering labor leader and civil rights icon, dies at 96 - CNN
+**Hook:** Did you hear about this? Dolores Huerta, pioneering labor leader and civil ...
+**Body:** Dolores Huerta, a pioneering labor organizer and civil rights icon who cofounded the United Farm Workers with Cesar Chavez in the 1960s, died at 96, her family said in a statement Wednesday.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Colorectal cancer is surging in an unexpected group — and it’s ‘developing differently’ - New York Post
-**Hook:** Did you hear about this? Colorectal cancer is surging in an unexpected grou...
-**Body:** Scientists are racing to understand why the disease is shifting to new populations — and why it’s appearing more aggressively.
+### Short 2: No clear winner in Israeli election as polls show race headed toward stalemate, negotiations on forming government - CBS News
+**Hook:** Did you hear about this? No clear winner in Israeli election as polls show ...
+**Body:** Israeli Prime Minister Benjamin Netanyahu appears to have won fewer votes than his main challenger, according to early exit polls, but both sides will likely struggle to cobble together a coalition.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: FBI serves search warrants tied to Eric Swalwell investigation at Beverly Hills mansion belonging to Stephen Cloobeck - ABC7 Los Angeles
-**Hook:** Did you hear about this? FBI serves search warrants tied to Eric Swalwell i...
-**Body:** The FBI served a search warrant at Beverly Hills mansion, and Eyewitness News has learned it's in connection to an investigation into Eric Swalwell.
+### Short 3: Flávio Bolsonaro lands in South Florida after Brazilian election defeat - Politico
+**Hook:** Did you hear about this? Flávio Bolsonaro lands in South Florida after Braz...
+**Body:** Photographs taken Wednesday morning showed Bolsonaro, who lost a runoff election Sunday to Luiz Inácio Lula da Silva, stepping out of a plane at a Miami-area airport.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
