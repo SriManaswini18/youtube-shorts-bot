@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Dolores Huerta, pioneering labor leader and civil rights icon, dies at 96 - CNN
-**Hook:** Did you hear about this? Dolores Huerta, pioneering labor leader and civil ...
-**Body:** Dolores Huerta, a pioneering labor organizer and civil rights icon who cofounded the United Farm Workers with Cesar Chavez in the 1960s, died at 96, her family said in a statement Wednesday.
+### Short 1: How parasites and fungi create nature’s real-life zombies - The Washington Post
+**Hook:** Did you hear about this? How parasites and fungi create nature’s real-life ...
+**Body:** These organisms can infect others — and then take control.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: No clear winner in Israeli election as polls show race headed toward stalemate, negotiations on forming government - CBS News
-**Hook:** Did you hear about this? No clear winner in Israeli election as polls show ...
-**Body:** Israeli Prime Minister Benjamin Netanyahu appears to have won fewer votes than his main challenger, according to early exit polls, but both sides will likely struggle to cobble together a coalition.
+### Short 2: Iran War Updates: Ship on fire in Strait of Hormuz as Hegseth fires top general accused of leaking war info - CBS News
+**Hook:** Did you hear about this? Iran War Updates: Ship on fire in Strait of Hormuz...
+**Body:** Tankers still under attack in the Strait of Hormuz as Pete Hegseth fires a top U.S. general accused of leaking classified Iran war information.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Flávio Bolsonaro lands in South Florida after Brazilian election defeat - Politico
-**Hook:** Did you hear about this? Flávio Bolsonaro lands in South Florida after Braz...
-**Body:** Photographs taken Wednesday morning showed Bolsonaro, who lost a runoff election Sunday to Luiz Inácio Lula da Silva, stepping out of a plane at a Miami-area airport.
+### Short 3: Stock market today: Dow, S&P 500, Nasdaq fall as Alphabet stock sell-off drags on tech, AI jitters return - Yahoo Finance
+**Hook:** Did you hear about this? Stock market today: Dow, S&P 500, Nasdaq fall as A...
+**Body:** Alphabet's Q3 earnings sparked a sell-off in the stock, and AI jitters returned to markets, dragging on the tech-heavy indexes.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
