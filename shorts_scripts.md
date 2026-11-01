@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: An ICE officer has been charged after striking a man with a car in Houston - CNN
-**Hook:** Did you hear about this? An ICE officer has been charged after striking a m...
-**Body:** A U.S. Immigration and Customs Enforcement officer accused of intentionally ramming his car into a Mexican construction worker in Houston was charged Friday with aggravated assault with a deadly weapon, prosecutors said.
+### Short 1: 2026 elections live updates: El-Sayed, Stevens feud lights up campaign amid final push - CBS News
+**Hook:** Did you hear about this? 2026 elections live updates: El-Sayed, Stevens feu...
+**Body:** The November 2026 midterm elections are just three days away. Candidates in key races — and President Trump — are making their closing arguments to voters.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Pope Leo becomes first pontiff to vote in U.S. election - The Washington Post
-**Hook:** Did you hear about this? Pope Leo becomes first pontiff to vote in U.S. ele...
-**Body:** The Vatican announcement comes as President Donald Trump has sought to cast doubt on mail-in voting.
+### Short 2: Nintendo Drops Surprise 'Pikmin Day' Direct - Nintendo Life
+**Hook:** Did you hear about this? Nintendo Drops Surprise 'Pikmin Day' Direct - Nint...
+**Body:** Yes, Pikmin Day
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Three tankers strike mines and catch fire in Strait of Hormuz, Iran claims, and other Mideast news - AP News
-**Hook:** Did you hear about this? Three tankers strike mines and catch fire in Strai...
-**Body:** Iran’s Revolutionary Guard claims a supertanker carrying over 2 million barrels of oil struck a naval mine, exploded, and caught fire in the Strait of Hormuz. This marks the third tanker incident on Friday after using unauthorized routes. The U.S. military de…
+### Short 3: 1 dead, 6 others hurt in shooting at Spirit Halloween in Fairfield, police say - KCRA
+**Hook:** Did you hear about this? 1 dead, 6 others hurt in shooting at Spirit Hallow...
+**Body:** One person was killed and six others are injured after a shooting at the Spirit Halloween store at the Solano Town Center in Fairfield on Friday night, police said.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
