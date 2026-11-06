@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Democratic sweep of Congress ushers in a new era as Trump acknowledges impact of the Iran war - AP News
-**Hook:** Did you hear about this? Democratic sweep of Congress ushers in a new era a...
-**Body:** President Donald Trump acknowledges the Iran war impacted the midterm elections but says he's not considering replacing Defense Secretary Pete Hegseth despite voter dissatisfaction with it. The election blowout of Republicans has delivered a new era in Washin…
+### Short 1: Actor and comedian Russell Brand found guilty of rape and sexual assault - CNN
+**Hook:** Did you hear about this? Actor and comedian Russell Brand found guilty of r...
+**Body:** British actor, comedian and media personality Russell Brand was found guilty of rape and sexual assault at a London court on Thursday.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: Detroit Lions’ Jack Campbell offers update: ‘I have full movement in my lower body’ - Pride Of Detroit
-**Hook:** Did you hear about this? Detroit Lions’ Jack Campbell offers update: ‘I hav...
-**Body:** Detroit Lions Jack Campbell offered is own injury update, noting that he has movement in his upper body.
+### Short 2: Wave of bomb threats against European airliners triggers diversions and tarmac searches - NBC News
+**Hook:** Did you hear about this? Wave of bomb threats against European airliners tr...
+**Body:** A passenger ​plane ⁠flying from Dublin ⁠to Rome was on Thursday ⁠diverted ‌to a French air force base after a bomb ‌threat.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Oil tumbles below $100 on post-election peace hopes - Financial Times
-**Hook:** Did you hear about this? Oil tumbles below $100 on post-election peace hope...
-**Body:** US vice-president JD Vance blames Republicans’ midterm defeat on anger over Iran war
+### Short 3: Victor Wembanyama makes NBA history with 52-point, 24-rebound, 8-block game in Spurs win - Yahoo Sports
+**Hook:** Did you hear about this? Victor Wembanyama makes NBA history with 52-point,...
+**Body:** No player in NBA history has posted a game with those numbers.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
