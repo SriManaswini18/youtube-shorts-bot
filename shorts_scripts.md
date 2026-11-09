@@ -1,22 +1,22 @@
 # Today's Top 3 YouTube Shorts
 
-### Short 1: Berkshire Hathaway’s Operating Earnings Fall, Buybacks Rise - Bloomberg.com
-**Hook:** Did you hear about this? Berkshire Hathaway’s Operating Earnings Fall, Buyb...
-**Body:** None
+### Short 1: Nvidia CEO Jensen Huang admits affair, board to launch investigation - Axios
+**Hook:** Did you hear about this? Nvidia CEO Jensen Huang admits affair, board to la...
+**Body:** "I owe my family and all of you an apology," Huang wrote in a draft email to Nvidia employees obtained by Axios.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 2: No one knew why a dad couldn't eat. Then a surgeon took a second look. - CBS News
-**Hook:** Did you hear about this? No one knew why a dad couldn't eat. Then a surgeon...
-**Body:** Richard Satin was in constant pain and couldn't eat. He was sure he was dying — until a surgeon found something unusual.
+### Short 2: Top House Democrat Hakeem Jeffries 'a hard yes' on impeaching Pete Hegseth - BBC
+**Hook:** Did you hear about this? Top House Democrat Hakeem Jeffries 'a hard yes' on...
+**Body:** Democrats swept to power after historic midterm election success and are now eyeing the Trump administration for revenge.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
 
-### Short 3: Anthropic IPO meets AI backlash after midterms show stinging rebuke of data centers - CNBC
-**Hook:** Did you hear about this? Anthropic IPO meets AI backlash after midterms sho...
-**Body:** Anthropic is poised to become the first pure-play AI company to hit the public market at a time when the public is increasingly leary of the industry.
+### Short 3: School aide who briefly served as NYPD officer arrested in fatal stabbing of Brooklyn jogger - NBC News
+**Hook:** Did you hear about this? School aide who briefly served as NYPD officer arr...
+**Body:** A public school employee who briefly served as an NYPD officer has been charged with second-degree murder in the fatal stabbing of a 28-year-old female jogger in Brooklyn last week, an apparently random attack.
 **CTA:** Like if you're surprised by this! #shorts
 
 ---
